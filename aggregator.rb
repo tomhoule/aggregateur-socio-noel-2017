@@ -28,7 +28,7 @@ end
 
 def client.aggregate_socionoel
     collect_with_max_id do |max_id|
-        options = { count: 100, result_type: 'recent', tweet_mode: 'extended' }
+        options = { count: 100, result_type: 'recent' }
         options[:max_id] = max_id unless max_id.nil?
         res = []
         self.search('#SocioNoel', options).each do |tweet|
@@ -38,19 +38,17 @@ def client.aggregate_socionoel
     end
 end
 
-results = client.aggregate_socionoel.map { |tweet| {
+results = Hash[client.aggregate_socionoel.map { |tweet| [tweet.uri, {
     full_text: tweet.full_text,
     text: tweet.text,
-    uri: tweet.uri,
     user_name: tweet.user.name,
     user_screen_name: tweet.user.screen_name,
     created_at: tweet.created_at,
-} }
+}] }]
+
+existing = JSON.parse(File.read("tweets.json"))
+results = results.merge existing
+
 File.open("tweets.json", 'w') { |file| file.write(results.to_json) }
 
 puts 'done'
-
-# client.search("#socionoel", result_type: "mixed", count: 100).take(3).each do |tweet|
-#     pry tweet
-#     puts tweet.inspect
-# end

@@ -5,11 +5,12 @@ require 'time'
 
 tweets = JSON.parse File.read("tweets.json")
 
-tweets.each do |tweet|
+tweets.each do |uri, tweet|
     tweet['created_at'] = DateTime.parse(tweet['created_at'])
 end
 
 tweets =  tweets.
+    values.
     sort { |a,b| a['created_at'] <=> b['created_at'] }.
     group_by { |tweet| tweet['created_at'].to_date }
 
@@ -22,7 +23,7 @@ File.open("tweets.md", 'w') do |file|
         tweets.each do |tweet|
             next if tweet['full_text'].match(/^RT/)
             text = tweet['full_text'].gsub(/^/, '> ')
-            file.write("\n#{tweet['user_name']} (#{tweet['user_screen_name']})\n #{text}\n")
+            file.write("\n---\n\n#{tweet['user_name']} (#{tweet['user_screen_name']})\n#{text}\n")
         end
     end
 end
