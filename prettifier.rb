@@ -3,6 +3,8 @@
 require 'json'
 require 'time'
 
+START_DATE = Date.new(2017, 12, 1)
+
 tweets = JSON.parse File.read("tweets.json")
 
 tweets.each do |uri, tweet|
@@ -17,7 +19,7 @@ tweets =  tweets.
 File.open("tweets.md", 'w') do |file|
     file.write("# SocioNoel 2017")
     tweets.each do |date, tweets|
-        next if tweets.empty? || date < Date.new(2017, 12, 1)
+        next if tweets.empty? || date < START_DATE
         file.write("\n\n## #{date}\n\n")
 
         tweets.each do |tweet|
