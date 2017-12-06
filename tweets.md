@@ -1389,3 +1389,148 @@ Romanin (Romanininin)
 
 Samuel Hayat (SamuelHayat)
 > #socioNoel J5, un livre assez unique du regretté Pierre Ansart : une sociologie de l'anarchisme de Proudhon, qui in… https://t.co/9mMtn2E7EN
+
+---
+
+Maïa Pavlenko (maiapav9)
+> #socioNoël #Jour5 Un peu de rugby avec la publication de K.L. Broad: The Gendered Unapologetic - Queer Resistance i… https://t.co/vfMofk8c42
+
+---
+
+Khesa (Khesa96)
+> Bon, en tant que Bb chercheuse, je me sens pas super légitime mais après 3 mois de lecture intensive, j’aimerais pa… https://t.co/V3mZOO8CLl
+
+---
+
+Khesa (Khesa96)
+> La suite pour demain (ou plus tard, je suis pas sure de pouvoir m’y tenir tous les jours !) #socioNoel
+
+
+## 2017-12-06
+
+
+---
+
+Emeline Brulé (e_mln_e)
+> #SocioNoel, un bonus. Le saviez-vous ? La première canne "intelligente" repérant les obstacles date de 1966.  https://t.co/qQfsb7FoPs
+
+---
+
+SocioSauvage (sociosauvage)
+> #SocioNoël #Day6 Entretien avec Bernard Lahire. Sacralité de l’art et pouvoirs d’attribution
+> https://t.co/f3FJDSuTnV
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 6 #socioNoel La force de la différence de Norbert Alter. L'auteur analyse les parcours de patron.ne.s qualifié… https://t.co/r45Dqqqj5s
+
+---
+
+Khesa (Khesa96)
+> @fredericln Ahahahah, je partage mes coups de cœur pour #socioNoel
+
+---
+
+Virginie Blum (blum_virginie)
+> #Day6 du #socioNoel 2017 - « Panique dans le 16ème » des Pinçon et @Pincon_Charlot &amp; Etienne Lécroart ➡️… https://t.co/SZAisZs0xZ
+
+---
+
+Maelyra (Maelyra_)
+> #SocioNoël #Jour6 Aujourd'hui, ce sera un mémoire de M2 de Julie Guillot
+> 
+> Entrer dans la maison des hommes. De la c… https://t.co/5OHCiiZVlB
+
+---
+
+Arnaud Saint-Martin (ArSaintMartin)
+> Tout à l'heure, c'est la séance 4 du cours d'épistémologie des sciences sociales, avec un gros morceau que l'on ne… https://t.co/0atfjrtuQ6
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J6 #SocioNoel Brian Hocking, "Localizing Foreign Policy". Un livre qui qui pose dès le début des années 1990 la que… https://t.co/yLaIEKPDmz
+
+---
+
+Entonnoir Argenté (Atne_Agtier)
+> L'impossible épistémologie des neurosciences pouvant expliquer le comportement humain.
+> Ehrenberg réfléchit au chang… https://t.co/vgtauW7mDe
+
+---
+
+vab (victor_ab)
+> #SocioNoel Jour 6: 
+> "Visibility, transparency and gossip: How did the religion of some (Muslims) become the public… https://t.co/x29zXOAFAJ
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> Déjà le J6 de mon #SocioNoël palestinien et je vous propose de retourner vers des sources francophones, bande de pe… https://t.co/Yn6xuIsGEB
+
+---
+
+Olivier J (RameauxDeMoi)
+> Pour le J6 de #Socionoel, on va continuer à questionner ce qu'est le rural sous l'angle d'un géographe urbain avec… https://t.co/EackQrebDY
+
+---
+
+Socio-reflexe (socio_reflexe)
+> #socioNoel Duval J., « Critique d’une analyse économique du cinéma », Revue française de Socio-Economie, 2012/2 (n°… https://t.co/i0iA6Xj8OF
+
+---
+
+Red Octopus 🌵 (spartakix)
+> @libidosciendi @amsterdam_ed Jour 6 de #SocioNoël : Karim Hammou, "Le disque comme document : une analyse quantitat… https://t.co/sRjnyFRsEh
+
+---
+
+ReOpen911 (ReOpen911_info)
+> @stanislaskazal Voici un sujet qui fait débat entre des bourdieusiens et des anti-bourdieusiens : https://t.co/nmKmuKwgBC #SocioNoel
+
+---
+
+Azadeh (azadehyurt)
+> J. 6 un excellent article de Vergès, Françoise. « À vos mangues ! », Politique africaine, vol. 100, no. 4, 2005, pp… https://t.co/2wFYfXQmLW
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour6 Cycle 2 (en fait y'en aura 5). Nouvelles formes de pratiques. Aujourd'hui, sur l'appropriation de… https://t.co/u0pNUErmNF
+
+---
+
+Flavien Bouttet (balleverte)
+> Au passage, pour la socio du corps, il faut suivre ce #SocioNoel là. https://t.co/xTtc9kmY2k
+
+---
+
+Claire Cosquer (s_kozhker)
+> #SocioNoël jour 6 : cette fois, un texte de critical legal studies, fondateur des whiteness studies. Whiteness as P… https://t.co/itM6O9ZKIH
+
+---
+
+ghislain t. (GhislainT_)
+> #SocioNoel #J6 "Les yeux de ma chèvre. Sur les traces des maîtres de la nuit en pays douala" de Eric de Rosny (1930… https://t.co/cGrqzvvCcf
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 6 ! Andiamo pour des ouvrages de sciences politiques pas trop trop réputés !
+> Philippe Minard first… https://t.co/MqLounmROa
+
+---
+
+↩↕⏫↪⬆ (CarmeloTax)
+> #SocioNoël G20
+
+---
+
+Steve J (Steve_J_)
+> #SocioNoël #Day6 Je sors complètement de mon domaine d'expertise en   parlant de l'enquête de Mathieu Trachman sur… https://t.co/GW60FK3jeJ
+
+---
+
+Maïa Pavlenko (maiapav9)
+> #SocioNoël #Jour6 "Sport and Transgender People: A systematic review of the literature relating to sport participat… https://t.co/69VqZ2j9FY
