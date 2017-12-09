@@ -1534,3 +1534,419 @@ Steve J (Steve_J_)
 
 Maïa Pavlenko (maiapav9)
 > #SocioNoël #Jour6 "Sport and Transgender People: A systematic review of the literature relating to sport participat… https://t.co/69VqZ2j9FY
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #SocioNoel j6, un autre ouvrage fondateur de l'Ecole de Cambridge en histoire des idées, Le moment machiavélien, de… https://t.co/m7Elyy6jjl
+
+---
+
+Johan Hernandez (Jo14Hernandez)
+> Sur les fans, la distinction et la culture légitime... #SocioNoël #JohnnyHallyday 
+> 
+> Le Bart, Christian. « Stratégie… https://t.co/N5OBtixz0X
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoel J5 en retard "les livres que je voudrais lire". Celui-là est tout à fait dans mes sujets, notamment sur… https://t.co/64hLVWFWAn
+
+---
+
+Hit East (HitEast)
+> #SocioNoel 🤫 https://t.co/k66jGKJlWK
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoel J6 "les livres que je voudrais lire" Parfois j'aimerais avoir plus de temps pour lire sur l'histoire de… https://t.co/iIs3lBOyLF
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #SocioNoël j6 : alors je ne maîtrise pas pourquoi Latour et callon ont mauvaise presse (trop loin dans le débat épi… https://t.co/o8QXnYB6HN
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 6
+> 
+> Ouvrage incontournable pour comprendre dans les grandes lignes la formation historique des class… https://t.co/a3GNfzrn8f
+
+---
+
+Romanin (Romanininin)
+> #socioNoel j6 : on approche doucement des EHPAD, avec aujourd'hui un article (un peu vieux quand même) qui nous par… https://t.co/gg0zc8fHcF
+
+---
+
+Emeline Brulé (e_mln_e)
+> #SocioNoel, jour 6 : L’invention de l’accessibilité. Des politiques de
+> transports des personnes handicapées aux pol… https://t.co/cSmx7hDhCf
+
+---
+
+MHH (MHoussayH)
+> #socioNoel J6: Stevens &amp; Cooper, Journal Keeping: How to Use Reflective Writing 4 Learning, Teaching, Professional… https://t.co/7Lr94FvMGL
+
+---
+
+MHH (MHoussayH)
+> #socioNoel Une pratique régulière d’écriture, avec plein de techniques possibles, y compris applicable dans l’enseignement (ô, transition).
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 6/25 Life exposed. Biological Citizens after Chernobyl, de Adriana Petryna https://t.co/6E48nhNdap est u… https://t.co/m9d8YWqluu
+
+---
+
+Gabriel Girard (GbrlGirard)
+> Jour 6 de #SocioNoel | Le livre de Geneviève Paicheler @Cermes3, Prévention du sida et agenda politique. Les campag… https://t.co/4G9UMidclz
+
+---
+
+Gabriel Girard (GbrlGirard)
+> @Cermes3 [Conflit d'intérêt #socioNoel : G. Paicheler était ma directrice de thèse !]. Un livre essentiel pour en s… https://t.co/0qzO0c1Lha
+
+---
+
+Socio-reflexe (socio_reflexe)
+> #socioNoel Judith Fhissen, « Les dynamiques historiques de l’exploitation des films en salle aux Pays-Bas », in Lau… https://t.co/il9XqD0Wav
+
+
+## 2017-12-07
+
+
+---
+
+Evolution Democratie (EvoDemocratie)
+> #SocioNoel Je me permets de compléter sur la même thématique de la classe ouvrière : Edward P. Thompson "the making… https://t.co/BEdS2ZAQtz
+
+---
+
+SocioSauvage (sociosauvage)
+> #SocioNoël #Day7 Entretien avec Annie Collovald
+> https://t.co/EBIU2gexWN
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J7 #SocioNoel André Lecours, « Paradiplomacy:
+> Reflections on the Foreign Policy
+> and International Relations of
+> Regi… https://t.co/kkBPAgRRK0
+
+---
+
+Elvire Bornand (ElvireBornand)
+> bon, bon , bon, j'étais un peu débordée ces derniers jours et j'ai même pas pensé à #socioNoel hier. Remarquez, qua… https://t.co/PfSyqfXhaN
+
+---
+
+Elvire Bornand (ElvireBornand)
+> #socioNoel J6 Décamper Un livre et un disque qui parlent en textes, sons et illustrations du non-accueil des réfugi… https://t.co/FJhbr4MlpY
+
+---
+
+Elvire Bornand (ElvireBornand)
+> #socioNoel J7 Sociologie du travail en France 1950-1990 parce qu'une moins jeune chercheure me disait lundi que les… https://t.co/LpJRpvoZWK
+
+---
+
+Olivier J (RameauxDeMoi)
+> C'est le J7 de #socioNoel! 
+> Malgré toutes les analyses qui peuvent s'appuyer sur des catégorisations, ça ne fait ja… https://t.co/qawpPSV49V
+
+---
+
+vab (victor_ab)
+> C'est le Jour 7 de #SocioNoël
+> "L'islam imaginaire: la construction médiatique de l'islamophobie en France, 1975-200… https://t.co/96fq4GOfR9
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> J7 de mon #SocioNoël palestinien, et on en apprend plus sur la politique des camps grâce à Manal Kortam.… https://t.co/so3rfFeoQx
+
+---
+
+Steve J (Steve_J_)
+> #socioNoel #Day7 : https://t.co/EYEM2mXnzi
+> "Vive la Revolution! long Term Returns of 1969 to the Angry Students" pa… https://t.co/rcQElesvJh
+
+---
+
+MHH (MHoussayH)
+> #socioNoel J7: passons à l’enseignement. @AnarchistGeog   @DrRichardJWhite &amp; Lopes de Souza, The Radicalization of… https://t.co/kZ0yZe5KBV
+
+---
+
+Lady_Pora (Comtesse_Leia)
+> J'ai pris du retard dans toutes ces histoires alors aujourd'hui ce ne sera non pas 1 non pas 2 mais 3 papiers pour #SocioNoël
+
+---
+
+Asso Clip (ClipAsso)
+> Les sociologues de tweeter proposent un #socioNoel où chaque jour ils nous conseillent des lectures dans leurs doma… https://t.co/AHqtaLWWit
+
+---
+
+Virginie Blum (blum_virginie)
+> #Day7 du #socioNoel 2017 : « Tranches de vie mobile. Enquête sociologique et manifeste sur la grande mobilité au tr… https://t.co/lnFpaAZ3HE
+
+---
+
+Flavien Bouttet (balleverte)
+> @persovinz #SocioNoel #Jour7 Florian Lebreton vous propose une "Une analyse socio-spatiale des déambulations sporti… https://t.co/jfKb9qJ1vX
+
+---
+
+Maïa Pavlenko (maiapav9)
+> #SocioNoël #Jour7  "Gender nonconformity, sex variation, and sport" Vikky Krane (2014) https://t.co/M3kLD3g05o https://t.co/sk3SHfZILF
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #socioNoel j7, un livre collectif tout juste paru, "Vers une histoire sociale des idées politiques", dirigé par Chl… https://t.co/U7it17iufH
+
+---
+
+Claire Cosquer (s_kozhker)
+> [tout crame autour de moi, mon bureau est à 2 miles de l'incendie de Bel Air, mais keep calm and socionoel]… https://t.co/EOfGG3XoOv
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 7 #socioNoel  Le capitalisme familial : logiques et trajectoires sous la dir. de Jean-Claude Daumas. Plusieurs… https://t.co/l6tyxVIWiG
+
+---
+
+ghislain t. (GhislainT_)
+> #SocioNoel #J7 "Congo-Paris. Transnational Traders on the Margins of the Law" (2000) de J. MacGaffey &amp; R. Bazenguis… https://t.co/420Y8qN2oe
+
+---
+
+ghislain t. (GhislainT_)
+> #SocioNoel #J7 Rémy Bazenguissa-Ganga est directeur d'études à l'EHESS (laboratoire IMAF). Si vous êtes étudiant·e… https://t.co/AstCk2pN4r
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 7 : en science politique on a tendance à négliger la notion d'Empire. En histoire, on a tendance à… https://t.co/51PnPb6Ilx
+
+---
+
+Azadeh (azadehyurt)
+> J.7.Le contrôle du corps des femmes dans les Empires coloniaux dir par M. Spency. #SocioNoel.  Sur la façon dont le… https://t.co/QasCkvRFVr
+
+---
+
+Vincent Chabault (vincentchabault)
+> #socioNoel 2017 Marie-France Garcia Parpet Le marché de l'excellence. Les grands crus... @EditionsduSeuil 2009… https://t.co/3p6bZW9RU5
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 7/25 La Transplantation d'organes. Un commerce nouveau entre les êtres humains, de Philippe Steiner… https://t.co/eSyukoNbzJ
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #socioNoel J7 « les livres que je veux lire » un auquel il sera assez inévitable que je me confronte dans un avenir… https://t.co/6Ggf2LpyZM
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 7
+> 
+> Aujourd'hui je vous propose un article qui est certes un peu vieux mais qui a toujours de l'actu… https://t.co/4JgfFvpcPJ
+
+---
+
+Johan Hernandez (Jo14Hernandez)
+> Destins ouvriers de Jean-Pierre Terrail. L'individuation des modes de vie a-t-elle signifié la fin d'une classe ?… https://t.co/DrxVVxkMYv
+
+---
+
+ghislain t. (GhislainT_)
+> C'est assez drôle : je fais un #socionoël sur les douala -&gt; on me demande si je suis douala ; un sur les commerçant… https://t.co/NitVKjBkyE
+
+---
+
+Gabriel Girard (GbrlGirard)
+> #SocioNoel jour 7 | Le livre de Didier Fassin : Quand les corps se souviennent. Expériences et politiques du sida e… https://t.co/Wk0dFpoTCb
+
+---
+
+Sandrine Halfen (Sandrine_Halfen)
+> #SocioNoel Jour 7 | Paul Farmer. Sida en Haïti. La victime accusée. Paris. Éditions Karthala. 1996. https://t.co/xVTDSUr9hU
+
+
+## 2017-12-08
+
+
+---
+
+Emeline Brulé (e_mln_e)
+> #SocioNoel jour 7 : Empowering Individuals with Do-it-yourself Assistive Technology, par @amyhurst et J. Tobias https://t.co/iBvMJAseUZ
+
+---
+
+Elvire Bornand (ElvireBornand)
+> #socioNoel J8 parce qu’on en parle beaucoup plus qu’on ne la lit. https://t.co/mXcLk3ifa9
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J8 #SocioNoel. Stéphane Paquin, « La paradiplomatie
+> identitaire ». Une étude des
+> paradiplomaties #identitaires et d… https://t.co/6Yq4hcN6Cj
+
+---
+
+SocioSauvage (sociosauvage)
+> #SocioNoël #Day8 @LMucchielli - À quoi sert la vidéosurveillance de l’espace public ?
+> https://t.co/ojvNO8PpA6
+
+---
+
+Virginie Blum (blum_virginie)
+> #Day8 du #socioNoël 2017 🤶🏾 « Sous la blouse »-1enquête d’Emmanuelle Zolésio sur les femmes chirurgiens chez… https://t.co/ZD3FNSpUEj
+
+---
+
+Emeline Brulé (e_mln_e)
+> #SocioNoel jour 8 : Disability and Technology A Critical Realist Perspective, par @cfrauenberger https://t.co/HDR186vcNN
+
+---
+
+Revue Terrain (RevueTerrain)
+> Un chant peut-il pousser à tuer ? C'est en tout cas ce que disent certains habitants des haut-plateaux éthiopiens r… https://t.co/VP237iWXU3
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 8 #socioNoel "Le ciel de plomb des organisations patronales" de Marion Rabier. Sur les engagements des dirigea… https://t.co/nKuipYvdKr
+
+---
+
+RT12 Socio Eco AFS (RT12_AFS)
+> PARUTION pour #socioNoel : "Finance at work" sous la direction de Valérie Boussard paru chez @Routledge_Socio 
+> https://t.co/RUHU0bW3Vz
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> J8 du #SocioNoël palestinien. L'actualité étant ce qu'elle est, on retourne aux classiques. https://t.co/nBvAZHSlCf
+
+---
+
+vab (victor_ab)
+> Jour 8 de #SocioNoel 
+> A la suite de l'ouvrage de hier, je propose aujourd'hui "L'islam, objet médiatique", une rech… https://t.co/PRZw36tloK
+
+---
+
+Steve J (Steve_J_)
+> #SocioNoël #Day8: https://t.co/ZuOXvAzCzS
+> "Des chiffres insensés ? Pourquoi et comment on donne un sens aux données… https://t.co/4SzhipvZo0
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour8 On discute différentes formes de course à pieds (trail, marathon) avec S. Cubizolles, B. Baron, E… https://t.co/qCw4GAPMNL
+
+---
+
+Romanin (Romanininin)
+> Boon, suite à un pb internet, hier j'ai pas eu le temps de faire #socioNoel. Donc aujourd'hui double dose de dépend… https://t.co/wb9gYkYcfn
+
+---
+
+Romanin (Romanininin)
+> Et du coup, #socioNoel J7, on rentre dans les EHPAD avec Villez A. et "Les EHPAD, la crise des modèles". Un article… https://t.co/3tN6hemv9I
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 8
+> 
+> Vous ne comprenez pas grand choses aux restructurations ?
+> Vous ne comprenez pas les enjeux qu'il… https://t.co/iWz3ZmzbZ3
+
+---
+
+Claire Cosquer (s_kozhker)
+> #SocioNoël Jour 8 : dans la même veine, Transnational Lives de Anne-Meike Fechter, une enquête centrée sur les "exp… https://t.co/AZdDDMDD64
+
+---
+
+Gabriel Girard (GbrlGirard)
+> #SocioNoel, jour 8 | Une fois n'est pas coutume, c'est aujourd'hui "l'ensemble de l'oeuvre" d'une collègue que je v… https://t.co/yb407rWvyh
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 8/25 Corps combattant. La production du soldat, de Jeanne Teboul https://t.co/mOyrWS9ZvS décrit la (tran… https://t.co/fQkphkKJox
+
+---
+
+Mehdi Arfaoui 🥑 (libidosciendi)
+> @spartakix @amsterdam_ed #SocioNoël jour 7, avec un jour de retard, un article de Francis Chateauraynaud, "L’empris… https://t.co/roy09VlqKz
+
+---
+
+ghislain t. (GhislainT_)
+> #SocioNoel #J8 "Sociology &amp; Empire.  The Imperial Entanglements of a Discipline" (collectif). Les articles de Julia… https://t.co/RbKe2b7jtk
+
+---
+
+Red Octopus 🌵 (spartakix)
+> @libidosciendi @amsterdam_ed #SocioNoël jour 8 : Karl Marx, Débats sur la loi relative au vol de bois (texte qui mé… https://t.co/OhewfV9P5O
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #socioNoel J8 « les livres que je voudrais lire ». Je crois qu’il y a une petite partie de moi qui regrette de ne p… https://t.co/HpQ3AU9888
+
+---
+
+CrêpeGeorgette (valerieCG)
+> POur votre #socioNoel, je me permets de proposer (je n'ai pas lu car rien n'est traduit) les livres de Oyeronke Oye… https://t.co/QAsnkM9BNM
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 8 ! Un bel ouvrage de Jérôme Tournardre pour comprendre comment s'organise une mobilisation dans et… https://t.co/mN2mqoud94
+
+---
+
+MHH (MHoussayH)
+> #socioNoel J8: un numéro spécial des Carnets de géographes sur enseigner la géographie dans le supérieur.
+> https://t.co/ytwXqyaV4u
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #socioNoel j8, un ouvrage qui reprend l'histoire de l'universalisme républicain et de la rhétorique des droits de l… https://t.co/7jABCJnqyc
+
+---
+
+Emilie Robert (emilie_robert_)
+> @GbrlGirard a piqué ma curiosité avec le #socionoel ! https://t.co/emlfYbxhT2
+
+---
+
+Emilie Robert (emilie_robert_)
+> Oh du réalisme critique à #socionoel ! 😊 @Anthony_Lact @MMacSeing https://t.co/oh5FbHinLI
+
+
+## 2017-12-09
+
+
+---
+
+Virginie Blum (blum_virginie)
+> #Day9 du #socioNoël 2017 «Les mauvaises gens. Une histoire de militants »d’Etienne Davodeau ➡️… https://t.co/47ppKTyoN1
