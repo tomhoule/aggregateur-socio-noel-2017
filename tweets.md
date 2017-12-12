@@ -643,6 +643,11 @@ Arnaud Saint-Martin (ArSaintMartin)
 
 ---
 
+Azadî (azadiyurt)
+> #SocioNoel Jour 2 : encore un ouvrage collectif, encore une référence.  Plan et Intro sont observables par ici -&gt;… https://t.co/sqd8eJWfKc
+
+---
+
 Azadeh (azadehyurt)
 > #SocioNoel Jour 2 : encore un ouvrage collectif, encore une référence.  Plan et Intro sont observables par ici -&gt;… https://t.co/sqd8eJWfKc
 
@@ -926,6 +931,11 @@ ghislain t. (GhislainT_)
 
 ghislain t. (GhislainT_)
 > #SocioNoel #J3 Balandier plaidait bien avant les indépendances pour : prendre en compte l'historicité des populatio… https://t.co/HQQNFSozTC
+
+---
+
+Azadî (azadiyurt)
+> J3. Le premier sociologue (et ouvrage de la discipline) que j'ai lu : Abdelmalek Sayad, La Double Absence. Des illu… https://t.co/RQ2bK5l5Tg
 
 ---
 
@@ -1283,6 +1293,11 @@ Mehdi Arfaoui 🥑 (libidosciendi)
 
 ---
 
+Azadî (azadiyurt)
+> Hey, j'ai un #socioNoel en retard.  Donc pour ce J4, ce sera ''Rejet des exilés. Le grand retournement du droit de… https://t.co/nSC3cWobD7
+
+---
+
 Azadeh (azadehyurt)
 > Hey, j'ai un #socioNoel en retard.  Donc pour ce J4, ce sera ''Rejet des exilés. Le grand retournement du droit de… https://t.co/nSC3cWobD7
 
@@ -1488,6 +1503,11 @@ Red Octopus 🌵 (spartakix)
 
 ReOpen911 (ReOpen911_info)
 > @stanislaskazal Voici un sujet qui fait débat entre des bourdieusiens et des anti-bourdieusiens : https://t.co/nmKmuKwgBC #SocioNoel
+
+---
+
+Azadî (azadiyurt)
+> J. 6 un excellent article de Vergès, Françoise. « À vos mangues ! », Politique africaine, vol. 100, no. 4, 2005, pp… https://t.co/2wFYfXQmLW
 
 ---
 
@@ -1738,6 +1758,11 @@ Joévin (_Anaximandre)
 
 ---
 
+Azadî (azadiyurt)
+> J.7.Le contrôle du corps des femmes dans les Empires coloniaux dir par M. Spency. #SocioNoel.  Sur la façon dont le… https://t.co/QasCkvRFVr
+
+---
+
 Azadeh (azadehyurt)
 > J.7.Le contrôle du corps des femmes dans les Empires coloniaux dir par M. Spency. #SocioNoel.  Sur la façon dont le… https://t.co/QasCkvRFVr
 
@@ -1950,3 +1975,672 @@ Emilie Robert (emilie_robert_)
 
 Virginie Blum (blum_virginie)
 > #Day9 du #socioNoël 2017 «Les mauvaises gens. Une histoire de militants »d’Etienne Davodeau ➡️… https://t.co/47ppKTyoN1
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J9 #SocioNoel Michael Keating, « Regions and
+> International Affairs ». Un détour par
+> les #régions pour amorcer le
+> qu… https://t.co/SyB7sZJ1Ky
+
+---
+
+!S (sociodeter)
+> Pour rattraper mon retard de 3 jours, 3 articles de Vacarme pour le thème "immigration et minorités": 
+> C. Rodier su… https://t.co/e2q2VLNPLH
+
+---
+
+Emeline Brulé (e_mln_e)
+> #SocioNoel jour 9 ! Le travail de Lieven de Couvreur et de ses étudiant.e.s sur le "design-for-one' https://t.co/YfE8gH5AuX
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> J9 de mon #SocioNoël palestinien, et je remets une source en français pour être sympa. https://t.co/6xe5681smB
+
+---
+
+vab (victor_ab)
+> #SocioNoël Jour 9: 
+> Un ouvrage écrit par Nilüfer Göle en 2015 à partir d'une enquête européenne menée dans plusieur… https://t.co/E2qzKir64K
+
+---
+
+Revue Terrain (RevueTerrain)
+> A  défaut de Johnny, l'article d'aujourd'hui s'intéresse aux  manifestations posthumes de Claude François. A mi-che… https://t.co/Is4UwN39Z4
+
+---
+
+Maelyra (Maelyra_)
+> #SocioNoël #Jour9
+> 
+> "Mediacultures : la tranidentité en télévision" par Karine Espineira 
+> 
+> Il s'agit d'une recherche… https://t.co/b3UmCUBDIv
+
+---
+
+Antonin Dubois (atndbs)
+> Pour mon #HistoNoël #SocioNoël  J9, quittons un peu l'Allemagne, avec le dernier livre de Nicolas  Mariot, "Histoir… https://t.co/pLbhlnY2ST
+
+---
+
+SocioSauvage (sociosauvage)
+> @LMucchielli #SocioNoël #Day9 La fabrique d'un classique français : le cas de « Weber » - Michael Gemperle
+> https://t.co/Fxw2r9rPyJ
+
+---
+
+Kiyémis. (ThisisKiyemis)
+> La suite de mon #SocioNoel (je suis en retard !)
+> Ouvrage écrit par @alwaystheself 
+> Sur la question de la race, l'ac… https://t.co/r7Kp70iuMA
+
+---
+
+Entonnoir Argenté (Atne_Agtier)
+> Plusieurs jours sans partage :
+> - Les nouvelles de la jungle, BD de la collection sociorama (lecture en ligne possib… https://t.co/A4GKmcJSf8
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 9
+> 
+> Je propose aujourd'hui un ouvrage qui parle des chomeurs des anciennes usines de Moulinex apres… https://t.co/06YI4jEFQy
+
+---
+
+Gaël (GaelT_)
+> D'ailleurs je crois que je vous partagerai la biblio, ça sera mon #socioNoël
+
+---
+
+Mehdi Arfaoui 🥑 (libidosciendi)
+> @spartakix #SocioNoël jour 9
+> 
+> En 1960, le cinéaste Jean Rouch mène avec @edgarmorinparis une "expérience anthropolo… https://t.co/9obkzdHx4C
+
+---
+
+Mehdi Arfaoui 🥑 (libidosciendi)
+> @spartakix @edgarmorinparis On vous met un dernier extrait, mais ce film extraordinaire est disponible en entier ic… https://t.co/YOd27Wy4fS
+
+---
+
+Johan Hernandez (Jo14Hernandez)
+> #SocioNoël Tous les cours de Pierre Bourdieu au Collège de France édités au Seuil. Que du bonheur. https://t.co/OHpVzqNu3C
+
+---
+
+MHH (MHoussayH)
+> #socioNoel J9, partage de mes ressources pédagogiques. A tout seigneur tout honneur, le blog de @TheTattooedProf 
+> https://t.co/eU45R1KhXr
+
+---
+
+MHH (MHoussayH)
+> @TheTattooedProf Pure PPP (Progressive Pedagogy w. Profanity, qui est aussi le courant dans lequel je m’inscrit).
+> O… https://t.co/M8OAwIJSwt
+
+---
+
+Gabriel Girard (GbrlGirard)
+> J9 #socioNoel | Le livre de Marcel Calvez @UnivRennes_2 : La prévention du sida. Les sciences sociales et la défini… https://t.co/jSWhazsM52
+
+---
+
+Khesa (Khesa96)
+> On continue ce #socioNoel avec un article d'Antoine Messara sur la pédagogie interculturelle et la religion au Liba… https://t.co/RIcKbFOGlg
+
+---
+
+Khesa (Khesa96)
+> Et on ne peut pas passer ce #socionoel sans parler d'un monument de l'historiographie auquel je m'initie doucement… https://t.co/SnW80tpbog
+
+---
+
+ghislain t. (GhislainT_)
+> #socioNoel #J9 "Alpha Mâle. Séduire les femmes pour s'apprécier entre hommes" de Mélanie Gourarier. Déroulez ⤵️ https://t.co/IdGHmWOl9t
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 9 #socioNoel Le Parti des patrons d'Henri Weber. Sur l'histoire et le fonctionnement du CNPF l'ancêtre du Mede… https://t.co/PpMfI7X0fF
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #SocioNoël j8 avec retard. Mon sujet de recherche en master 2 : miroirs/miroirs, "Grindr mon amour ?"' Ed. Des aile… https://t.co/PMVFfEINqa
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #SocioNoël J9 : encore un peu de technique, Flichy Patrice, "technique, usage et representation" in: réseaux, 2008/… https://t.co/Z2DDut625W
+
+
+## 2017-12-10
+
+
+---
+
+Claire Cosquer (s_kozhker)
+> Chez moi il est encore l'heure de poster le #SocioNoël Jour 9. Pour celui-ci je m'inspire de @Uneheuredepeine en tw… https://t.co/TXocTmwvYb
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> Dixième jour et deuxième dimanche de mon #SocioNoël palestinien. Cette semaine comme la semaine dernière, mettez vo… https://t.co/rUezHqjZj5
+
+---
+
+Emeline Brulé (e_mln_e)
+> #socioNoel jour 10 : un projet, BrutPop. Instruments pour performances visuelles et musicales sur mesure. https://t.co/23EZf9A1Q3
+
+---
+
+vab (victor_ab)
+> Jour 10 de #SocioNoël
+> "Fatima moins bien notée que Marianne", un ouvrage paru en 2016 sur l'école et les musulmans.… https://t.co/OWVEnZnDYv
+
+---
+
+Lady_Pora (Comtesse_Leia)
+> Beaucoup de retard dans #SocioNoël donc ce sera de nouveau par 3
+
+---
+
+MHH (MHoussayH)
+> #socioNoel J10, #pedagogie et ressources électroniques toujours: le blog @ProfHacker 
+> 
+> https://t.co/8w6a0vWTVU
+
+---
+
+MHH (MHoussayH)
+> #socioNoel Tech (que j’utilise moins), organisation (++), construire un syllabus, idées en vrac par mots-clefs, etc.
+
+---
+
+Revue Terrain (RevueTerrain)
+> Ce  dimanche, parlons d'amour ! Et pas avec n'importe qui : c'est Alfred  Gell lui-même qui nous convie à réfléchir… https://t.co/Dvhl0t3uLc
+
+---
+
+Maelyra (Maelyra_)
+> #SocioNoël #Jour10 
+> "Whipping girl: A Transsexual Woman on Sexism and the Scapegoating of Femininity" Par Julia 
+> 
+> S… https://t.co/bzQW8EqKcW
+
+---
+
+SocioSauvage (sociosauvage)
+> @LMucchielli #SocioNoël #Day10 L’IVG et la recomposition de la norme procréative - Nathalie Bajos &amp; Michèle Ferrand
+> https://t.co/Y6Yrk1uBUo
+
+---
+
+!S (sociodeter)
+> On continue sur l'immigration avec l'ouvrage collectif "Le retour des camps? Sangatte, Lampedusa, Guantanmo..." (di… https://t.co/mfpt78fV2K
+
+---
+
+Kiyémis. (ThisisKiyemis)
+> Pour mon #SocioNoel d'aujourd'hui, je vais exceptionnellement mettre un livre que je n'ai pas encore lu mais qui a… https://t.co/XGTbozaZGU
+
+---
+
+Aude Konan (AudeKonan)
+> Twitter, c’est quoi #socionoel ? Ca a l’air interessant
+
+---
+
+ghislain t. (GhislainT_)
+> #SocioNoel #J10 Si vous voulez saisir la polémique sur le mot "racisé", "Resurrecting Slavery. Racial Legacies &amp; Wh… https://t.co/DMsQivzGwo
+
+---
+
+Khesa (Khesa96)
+> Pour le #SocioNoël d’aujourd’hui, on va parler d’un livre qui a été central dans mes recherches en licence : « Rech… https://t.co/swPCQJsBfk
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 9 ! Retour aux fondamentaux avec Max Weber et son Histoire Economique Générale https://t.co/0W7v2t5RP5
+
+---
+
+Joévin (_Anaximandre)
+> #Socionoel Jour 10 (je rattrape mon retard) : Dominique Montjardet et Ce que fait la police. Une étude pour se rend… https://t.co/I6B016dKe8
+
+---
+
+Grande Remplaçante (KanyeWech)
+> Je suis tentée de faire un #socioNoel ou #AcheteLaBibliographieDeMonMemoirePourNoël
+
+---
+
+Virginie Blum (blum_virginie)
+> #Day10 du #SocioNoel 2017 : « Le grand A » de Xavier Bétaucourt &amp; Jean-Luc Loyer ➡️ https://t.co/Fzks1siwUk https://t.co/Ix6PWMuEWz
+
+---
+
+Azadî (azadiyurt)
+> Pour le J.8, cet ouvrage de Ann Laura Stoler.  Elle y analyse la situation coloniale, en se basant sur la réflexion… https://t.co/ASRRoTnp5g
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #SocioNoel J10, un classique : Michel Bozon, , Sociologie de la sexualité, Armand Colin, coll. « 128 », 2009
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 9/25 Our Bodies Belong to God: Organ Transplants, Islam, and the Struggle for Human Dignity in Egypt, de… https://t.co/KvjKDGGFQL
+
+---
+
+Guillaume Lejeune (lejeuneguillaum)
+> #SocioNoël La récente traduction d'Arlie Hochschild, Le prix des sentiments, au cœur du travail émotionnel. Pour co… https://t.co/iFsYPt1jsZ
+
+---
+
+Khesa (Khesa96)
+> Au rayon des livres qui ont enjolivé mon année, il faudrait ajouter « royaume d’asphalte » de Pascal Menoret. 
+> Pass… https://t.co/lrUJGwxnSG
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 10/25 Pretty Modern: Beauty, Sex, and Plastic Surgery in Brazil d’Alexander Edmonds… https://t.co/JnZWq7sG0n
+
+---
+
+Claire Cosquer (s_kozhker)
+> #SocioNoël Jour 10 : retour aux textes pionniers avec White, de Richard Dyer, un article qui sera suivi d'un livre… https://t.co/lNcFi6eMw3
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoel J9 « les livres que je voudrais lire » rappel : Brooke Harrington est actuellement poursuivi par la just… https://t.co/rSDFTy07A9
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoel J10 « les livres que je voudrais lire » celui-là, il est en plein dans l’actualité. Mais je dois aussi l… https://t.co/UB6I8fCaBu
+
+---
+
+Flavien Bouttet (balleverte)
+> Il y a d'autres gens grave à la bourre dans #SocioNoel ?
+
+---
+
+Alexandre Moatti (A_Moatti)
+> @balleverte pour pas être à la bourre suffit de RT ses #socionoel de l'an dernier
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour9 parce que les nouvelles formes de pratiques sportives, c'est aussi l'APA. un texte de N. Barth et… https://t.co/zjbKEz795d
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour10 On parle du sport en entreprise ici et là. qu'en est-il vraiment? Un début de réponse: D. Bernar… https://t.co/riMholVcGC
+
+---
+
+Gabriel Girard (GbrlGirard)
+> Jour 10 #SocioNoel | Le livre de Christophe Broqua, Agir pour ne pas mourir ! Act Up, les homosexuels et le sida, p… https://t.co/CJg8uXfjKi
+
+---
+
+Azadî (azadiyurt)
+> Et ensuite, un CLASSIQUE : Edward Saïd, L'Orientalisme, l'Orient crée par l'Occident, 1978 aux éd du Seuil que je n… https://t.co/6n7kXuxSkV
+
+---
+
+Steve J (Steve_J_)
+> #socioNoel #Day9 : Un ouvrage de Baudelot et Establet (#NameAMoreIconicDuo #IWillWait) resté célèbre par son titre… https://t.co/4nEPbnUCJL
+
+---
+
+Steve J (Steve_J_)
+> #SocioNoel #Day10 : Il faut toujours #RelireLahire ce que je n'ai pas fait récemment avec ce gros ouvrage sur la qu… https://t.co/Ls1W8wuj9c
+
+---
+
+Red Octopus 🌵 (spartakix)
+> @libidosciendi @edgarmorinparis #SocioNoël jour 10 : Nicolas Dodier, Les Hommes et les Machines (1995) https://t.co/g2x7MLoGsU
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 10
+> 
+> Travail ethnographique majeur sur le milieu ouvrier hors de l'usine, dans les années !
+> Bref, la… https://t.co/abmRaZEahx
+
+---
+
+ZaZ333 (Morifen333)
+> Parution : Finance at Work, Valérie Boussard (dir.), Routledge #SocioNoel https://t.co/rqEFtw7VLa via @hypothesesorg
+
+---
+
+Alexandre Moatti (A_Moatti)
+> Contribution de @GDarmanin, de @publicsenat et de @JP_Elkabbach réunis à #SocioNoël J1 #BibliothèqueMédicis https://t.co/ifrP1i4nAC
+
+
+## 2017-12-11
+
+
+---
+
+comrade k (majestichristie)
+> Le hashtag #SocioNoel c'est vraiment le pire ! J'avais réussi à vider un peu ma wishlist Amazon et maintenant c'est… https://t.co/Na0s47Bhly
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #SocioNoel J9, un livre récent fondamental, Silyane Larcher, "L'autre citoyen", une histoire de la citoyenneté au X… https://t.co/wCqlcWoFcq
+
+---
+
+SocioSauvage (sociosauvage)
+> @LMucchielli #SocioNoël #Day11 Le genre de la contraception : représentations et pratiques des prescripteurs en Fra… https://t.co/9EY509THpC
+
+---
+
+Emeline Brulé (e_mln_e)
+> #socioNoel jour 11 : Investigating the Implications of 3D Printing in Special Education https://t.co/fTQAAOTlpF
+
+---
+
+Revue Terrain (RevueTerrain)
+> E.P. Thompson a fameusement opposé travail agricole et production industrielle, caractérisée par une nouvelle disci… https://t.co/2nRFAu5wy1
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> J11 du #SocioNoël, toujours palestinien, et on parle de Jérusalem. https://t.co/nx6fYIDpGk
+
+---
+
+MHH (MHoussayH)
+> #SocioNoel J11 ressources enseignement toujours: le blog de @facultyfocus 
+> https://t.co/E9PpCnQgJ7
+
+---
+
+vab (victor_ab)
+> Pour le jour 11 de #SocioNoël c'est "Islamophobia", un ouvrage du sociologue britannique Chris Allen publié en 2010. https://t.co/8fF8IRYVww
+
+---
+
+MHH (MHoussayH)
+> #SocioNoel Des résumés en une page des dernières publis de Scholarship of Teaching &amp; Learning
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 10 #socioNoel Genèse des organisations patronales sous la direction de Danièle Fraboulet et Pierre Vernus. Une… https://t.co/zNoVVNzjFp
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 11 #socioNoel Toujours aux éditions PUR. Coopérer, négocier, s'affronter sous la direction de Danièle Fraboule… https://t.co/yed5Hvq2nO
+
+---
+
+vab (victor_ab)
+> Je fais #SocioNoël, mais je suis très fan du hastag #UrbaNoel 🔝
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #SocioNoel J10, allez un classique, l'étude de Pierre Bourdieu sur Heidegger. Difficile, pas entièrement convaincan… https://t.co/UR59uaGyyx
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #SocioNoel j11, Hannah Arendt, "Les origines du totalitarisme", un monument d'histoire des idées qui explore le tot… https://t.co/wdbYbu8We9
+
+---
+
+Azadî (azadiyurt)
+> Un autre #SocioNoel sur le contrôle des f. avec ce livre de l'historienne Christelle Taraud int: "la prostitution c… https://t.co/PyleLBuqDD
+
+---
+
+Entonnoir Argenté (Atne_Agtier)
+> Du Lahire aujourd'hui. Plutôt qu'un bouquin ou un article, un long entretien (mais agréable à suivre), qui permet d… https://t.co/ai7RcI3iti
+
+---
+
+Presses Sciences Po (EditionsScpo)
+> @Uneheuredepeine @mquijoux #RT #Idéelecture et #SocioNoel : Charles Tilly, Sydney Tarrow "Politique(s) du conflit"… https://t.co/EnQhYf5A6I
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoel J11 « Les livres que je voudrais lire ». Comment ne pas s’y confronter à un moment donné ? https://t.co/SP8Eocq3Gx
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J11 #SocioNoel Renaud Payre Milo Spahic « Le tout petit
+> monde des politiques urbaines
+> européennes ». Plongée dans l… https://t.co/oPBczSC7SA
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J10 #SocioNoel Romain Pasquier « La capacité
+> politique des régions ». Cette
+> comparaison entre les régions
+> française… https://t.co/gjtK5pe25n
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J 11 #SocioNoel @RenaudPayre, Mili Spahic, "Le tout petit monde des politiques urbaines européennes". Plongée dans… https://t.co/1ud3ZcFo4o
+
+---
+
+Socio-reflexe (socio_reflexe)
+> #socioNoel Duval J, Le cinéma au XX° siècle. Entre loi du marché et règles de l’art, CNRS Editions, 2016, Paris https://t.co/NqywuNEtbG
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 11
+> 
+> Ce que regroupe l'idée de restructuration d'entreprise, je vous avais présenté un article, lais… https://t.co/Mqq36cf3tj
+
+---
+
+Lady_Pora (Comtesse_Leia)
+> Bon c'est pas tout mais continuons sur la série #ÉconomieDeLÉconomie pour #SocioNoël
+
+---
+
+Steve J (Steve_J_)
+> #socioNoel #Day11 : un Repères qui cherche à faire la synthèse de travaux variés sur le traitement sociologique de… https://t.co/1dwEJ3OZL5
+
+---
+
+Claire Cosquer (s_kozhker)
+> #SocioNoël Jour 11 : un des quelques articles en français, par Solène Brun et @JGalonnier 2016, Devenir(s) minorita… https://t.co/JVUQx7Jtsf
+
+---
+
+Mehdi Arfaoui 🥑 (libidosciendi)
+> @spartakix @edgarmorinparis #SocioNoël jour 11 - Punishing the Poor: The Neoliberal Government of Social Insecurity… https://t.co/W69fUNXm4N
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #BonusHorsTheme. Si on parlait un peu prof d'EPS avec Arnaud Sébileau: "Le monopole professoral en quest… https://t.co/zRk9ldAGMH
+
+---
+
+Azadî (azadiyurt)
+> #SocioNoël J10 :La République magique, soigner l’âme française (2016).Ds ce livre, S.Ouazzene &amp; J.E Boulin s'attaqu… https://t.co/P0GAhsxmpr
+
+---
+
+Azadî (azadiyurt)
+> #SocioNoël Samir Ouazzene revient sur l'ouvrage mentionné juste au dessus dans cette petite vidéo qui, je l’espère,… https://t.co/Az3b0OiheK
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #socioNoel J11: un classique incontournable. Pollak Michael. L'homosexualité masculine, ou le bonheur dans le ghett… https://t.co/1yO0vYpYlw
+
+---
+
+Gabriel Girard (GbrlGirard)
+> Jour 11 de #SocioNoel | Aujourd'hui c'est une maison d'édition qui est à l'honneur : les presses de l'Université du… https://t.co/w7fPTOiQZO
+
+---
+
+ghislain t. (GhislainT_)
+> #SocioNoel #J11 "Les voleurs de sexe. Anthropologie d'une rumeur africaine" de Julien Bonhomme. Ayant vécu l'une de… https://t.co/M64B0haUbj
+
+---
+
+ghislain t. (GhislainT_)
+> #SocioNoel #J11 Dans la continuité de ces travaux, si vous voulez comprendre le n-ème message WhatsApp sur le "n° d… https://t.co/rIuEstLyMy
+
+---
+
+Steve J (Steve_J_)
+> #SocioNoël #Day12 : "La taille des hommes : son incidence sur la vie en couple
+> et la carrière professionnelle" de N… https://t.co/aRy3qHoedo
+
+
+## 2017-12-12
+
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J12 #SocioNoel Benjamin Barber, « If Mayors Ruled the
+> World » (2013). Face aux États incapables de
+> gérer les affair… https://t.co/4PbWRlijag
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 12 #socioNoel Toujours aux éditions PUR (excellente série d'ouvrages collectifs sur le thème, vraiment). Les o… https://t.co/MIq2JHumCS
+
+---
+
+Emeline Brulé (e_mln_e)
+> #socioNoel jour 12 : une frise sur l'histoire des technologies dite d'assistance : https://t.co/7HZAYbneKm
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 11 ! Daniel Gaxie, Enjeux Municipaux. Un des premiers ouvrages qui traite de l'élection locale https://t.co/sKoFvUzcID
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 12 ! Viviana Zelizer et La signification sociale de l'argent. https://t.co/WwKyWfFjzR
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> J12 du #SocioNoël palestinien ! On retourne à un article, on retourne à du français, car je suis sympa.… https://t.co/8ES8viSGED
+
+---
+
+Revue Terrain (RevueTerrain)
+> Madame  et Monsieur D. se disputent la garde de Harry, huit ans. Mais Harry n'est pas  l'enfant du couple... c'est… https://t.co/kPW9cNM6Hc
+
+---
+
+Virginie Blum (blum_virginie)
+> J11 et J12 pour mon #SocioNoël spécialBD!! « Riche. Pourquoi pas toi ? »&amp;« Doigts d’honneur. Révolution en Egypte e… https://t.co/Vx7AJ4tk8T
+
+---
+
+Maelyra (Maelyra_)
+> #SocioNoël #J12
+> 
+> Transgender history de Susan Stryker.
+> 
+> Alors c'est en anglais et ça couvre le contexte étasunien.… https://t.co/0att3LkU4r
+
+---
+
+Avitius (avitius1)
+> @tcatf_  j'me sentais obligé de participer au #SocioNoël , et plutôt qu'un bouquin, aujourd'hui, pour intéresser le… https://t.co/sXNwcduwDg
+
+---
+
+MHH (MHoussayH)
+> #SocioNoel J12, enseignement. Le blog Didagéo, sur la didactique de la géographie, histoire de se tenir au courant.
+> https://t.co/BiP6B2s3Vz
+
+---
+
+Socio-reflexe (socio_reflexe)
+> #SocioNoel Ethis E., Sociologie du cinéma et de ses publics, Armand Colin, 2007 (2005), Barcelone https://t.co/a9r9sYWQYl
+
+---
+
+Grégoire Lits (Greg_Lits)
+> "Etre jeunes chercheur-e-s aujourd'hui"
+> C'est le thème du n°21 @Rev_Emulations qui vient de sortir ! #openaccess… https://t.co/zOYYStOJOd
+
+---
+
+Maïa Pavlenko (maiapav9)
+> #SocioNoël #Jour12 Video d'une conférence du @TuckerCenter le centre de recherche de l'Université de Minnesota : "T… https://t.co/1UO6byZveB
+
+---
+
+Claire Cosquer (s_kozhker)
+> @JGalonnier #SocioNoël Jour 12 : une des premières revues de littérature en français, Bosa, Bastien. 2010. « Plus b… https://t.co/d8AaNVZTP8
+
+---
+
+Romanin (Romanininin)
+> Booooon, ces derniers jours j'ai pas eu le temps de m'occuper de #socioNoel ! Je me rattrape ce J12 avec  « Solitud… https://t.co/SWMyzZkLRD
+
+---
+
+MHH (MHoussayH)
+> #socionoel J13. En avance parce que comme d’hab’, @raulpacheco a fait le job. On repasse du côté ressources pour l’… https://t.co/KkFvoBkg6T
+
+---
+
+Khesa (Khesa96)
+> Pour le #SocioNoël du jour, une petite merveille que j’ai à peine commencée mais qui est super intéressante : j’ai… https://t.co/fdhSbrR5LB
+
+---
+
+SocioSauvage (sociosauvage)
+> @LMucchielli #SocioNoël #Day12 Des experts aux logiques profanes : les prescripteurs de contraception en France - A… https://t.co/WEDWiyJRSL
+
+---
+
+!S (sociodeter)
+> On sort un peu de la socio mais on reste sur l'immigration avec le projet essentiel de Forensic Oceanography sur l'… https://t.co/ojmlJ6VzP2
+
+---
+
+ghislain t. (GhislainT_)
+> #SocioNoel #J12 Si voulez comprendre le succès des telenovela (ou de bollywood) en #Afrique -&gt; Adeline Masquelier,… https://t.co/OpZdeUB0iC
+
+---
+
+Lo.LA (Lolalittleworld)
+> Je vais me permettre ici de faire une digression (presque #SocioNoël) sur l’histoire de ce qu’on appelle la "crimin… https://t.co/RJIZ3Hrpno
