@@ -2644,3 +2644,681 @@ ghislain t. (GhislainT_)
 
 Lo.LA (Lolalittleworld)
 > Je vais me permettre ici de faire une digression (presque #SocioNoël) sur l’histoire de ce qu’on appelle la "crimin… https://t.co/RJIZ3Hrpno
+
+---
+
+Emilie Robert (emilie_robert_)
+> Inspiré de #socioNoel, #ICARES lance un #realistXmas auquel @Anthony_Lact a déjà contribué ! Francophones et -phile… https://t.co/iVj8JqGRwy
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #socioNoel J12 : "(homo)sexualité et numérique".  Mendès-Leite, Rommel, et Bruno Proth. « Pratiques discrètes entre… https://t.co/bL2MDhoAmu
+
+---
+
+Entonnoir Argenté (Atne_Agtier)
+> "Féminisme, capitalisme et ruses de l'histoire", de Nancy Fraser.
+> Un article dense revenant sur les critiques du fé… https://t.co/PvSxPiYKkc
+
+---
+
+Gabriel Girard (GbrlGirard)
+> Jour 12 #SocioNoel | Le livre dirigé par Viviane Namaste HIV Prevention and Bisexual Realities, paru en 2012 aux Un… https://t.co/XF1jqnmN5g
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 12
+> 
+> Je n'ai pas lu ce bouquin hélas ! 
+> Mais ça a l'air trop intéressant !!! 
+> Il revient en gros sur… https://t.co/Tm9Lk1BPSX
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #socioNoel j12, dur de choisir un seul livre de Foucault en histoire des idées, mais un de mes préférés est le cour… https://t.co/kLhmwc32wh
+
+---
+
+Chantal Bayard (c_bayard)
+> #SocioNoël 9/25 Le Corps-marché. La marchandisation de la vie humaine à l'ère de la bioéconomie par Céline Lafontai… https://t.co/LOJa91Rhy9
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 11/25 Reconstructing Bodies: Biomedicine, Health &amp; Nation-Building in South Korea Since 1945, de John Di… https://t.co/RHIRcCqlfA
+
+---
+
+Steve J (Steve_J_)
+> #SocioNoel #Day13 : https://t.co/hVgwSsRClJ
+> "La « science des données » à la conquête des mondes sociaux : ce que l… https://t.co/A8mLSJKGzw
+
+
+## 2017-12-13
+
+
+---
+
+SocioSauvage (sociosauvage)
+> #SocioNoël #Day13 La fabrique des statistiques pénitentiaires - Anaïs Henneguelle
+> https://t.co/YKDljUQYCt
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J13 #SocioNoel Patrick Le Galès « Le retour des
+> villes européennes ». Bien que ne
+> portant pas directement sur l’act… https://t.co/mNfcaLtcGQ
+
+---
+
+Emeline Brulé (e_mln_e)
+> #socioNoel J13 (A link a day) : @merylalper's Giving Voice, un livre sur les technologies de communication amélioré… https://t.co/AoogkaiIP0
+
+---
+
+Virginie Blum (blum_virginie)
+> J13 de mon #socioNoel spécial BD : "Encaisser" @CastermanBD d'après l'enquête de Marlène Benquet sur la grande dist… https://t.co/I2sNy8j882
+
+---
+
+vab (victor_ab)
+> Je dois rattrapper le Jour 12 de #SocioNoël... 
+> Voici "Global islamophobia. Muslims and moral panic in the west" by… https://t.co/1hTNHXBsFY
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> On est mercredi, c'est #SocioNoël, c'est le #SocioNoël palestinien, jour 13. Et dans "13", il y a "Puig". Bon, pas… https://t.co/AIsqZHK53Z
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 12/25 Le droit à l’inclusion, de David Engel et Frank Munger https://t.co/e91kS8u9b0 travaille les rappo… https://t.co/QIqiA9cB1e
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 13
+> 
+> Un bon ouvrage pour comprendre les bases dans les syndicats en général https://t.co/0l9bpCZvsV
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 13 #socioNoel "La parole en mouvement du patronat. CNPF-MEDEF 1981-2010" de Josette Lefèvre. Une analyse quant… https://t.co/KZULPVQ3pr
+
+---
+
+Socio-reflexe (socio_reflexe)
+> #SocioNoel L. Creton, « Le marketing et la relation avec les spectateurs en question », in Laurent Creton et Kira
+> K… https://t.co/Zbpq691h6V
+
+---
+
+Revue Terrain (RevueTerrain)
+> "L'individu devient ainsi particulièrement  sensible aux valeurs de sa propre culture par opposition à celles des… https://t.co/plOmkvTGO3
+
+---
+
+Alexandre Moatti (A_Moatti)
+> "MACRON par TOURAINE"
+> #SocioNoël J13 https://t.co/GT0MimcK4I
+
+---
+
+Alexandre Moatti (A_Moatti)
+> "Dans l'œil du sociologue &gt; Macron par Touraine : enfin un pilote dans l'avion" #SocioNoël J13 #SNParody https://t.co/GSDdRzUBjs
+
+---
+
+Alexandre Moatti (A_Moatti)
+> 3/ un teasing dans le magazine 'Acteurs de l'économie' qui COÉDITE le livre-événement 'MACRON par TOURAINE'… https://t.co/DMHPzzh1De
+
+---
+
+Andrea Naranjo GdeR (AndreaNaranjoLe)
+> @Mr_Jarad ah zut j'ai fait #socioNoel l'année passée! cette année  je ferais un truc de musique
+
+---
+
+MHH (MHoussayH)
+> #SocioNoel J14 : le blog consacré aux ressources ‘écriture de la LS:
+> https://t.co/hCML9R4NKi
+
+---
+
+Visbeth (visbethsummers)
+> "Selon Robert Castel, il y a "déstabilisation du travail" car avant la révolution industrielle, le travail était un… https://t.co/cUKvpMM4Zk
+
+---
+
+Amazinggaijin ⛩ (amazinggaijin)
+> Des liens vers des threads #socionoël Panafricaniste, Post- Colonial..etc ?
+
+---
+
+Khesa (Khesa96)
+> Et du coup, pour le #socioNoel du jour, on va parler de Bourdieu ! 
+> Alors, non, je ne me suis pas attaquée à ce mon… https://t.co/KmwJZP6BHB
+
+---
+
+Claire Cosquer (s_kozhker)
+> #SocioNoël Jour 13 : j'avais déjà parlé de la revue de littérature la plus extensive dont on dispose en français :… https://t.co/g84ehtJ6R8
+
+---
+
+vab (victor_ab)
+> Et pour le Jour 13 de #SocioNoel c'est "La nouvelle islamophobie" de Vincent Geisser. Ouvrage paru en 2006. https://t.co/JaMlNsIwTK
+
+---
+
+Emile, on bande ? (sociobd)
+> #SocioNoel ou Spirou Magazine, il fallait choisir ! 
+> Il me semble que LM a fait le bon choix... Si vous voulez véri… https://t.co/sQacoumnGY
+
+---
+
+Maelyra (Maelyra_)
+> #SocioNoël #Jour13
+> 
+> The "Empire" strikes back: a posttransexual manifesto, Sandy Stone.
+> 
+> https://t.co/YPjZvlxeCo
+
+---
+
+Olivier J (RameauxDeMoi)
+> Bon, j'ai grave foiré mon #Socionoel
+> Promis je serais prêt pour l'année prochaine!
+
+---
+
+Romanin (Romanininin)
+> Pour mon #socioNoel j13, un article de Nadège Planson, "La définition normative des résidents en maison de retraite… https://t.co/1VJazkZyPF
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 13/25 La condition fœtale de Luc Boltanski https://t.co/atVVCWzERo pour la réflexion sur les contraintes… https://t.co/qUHRpaekaC
+
+---
+
+Gabriel Girard (GbrlGirard)
+> #SocioNoel J13 | Le livre de David Halperin, Que veulent les gays? Essai sur le sexe, le risque et la subjectivité.… https://t.co/RsNRzDdfnm
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #SocioNoel j13, Isabelle Gouarné,  "L'introduction du marxisme en France", une histoire sociale du marxisme dans le… https://t.co/LUCLO8qDJA
+
+
+## 2017-12-14
+
+
+---
+
+SocioSauvage (sociosauvage)
+> #SocioNoël #Day14 L'invention de l'échelle métrique de l'intelligence - Patrice Pinell
+> https://t.co/sDiieHuHNd
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J14 #SocioNoel Saskia Sassen, « The Global City » (1991 ; 2001). Un
+> classique des études en économie territoriale q… https://t.co/mTVdaziUp6
+
+---
+
+Emeline Brulé (e_mln_e)
+> #SocioNoel jour 14: Aujourd'hui, on s'éloigne un peu du handicap, mais on se rapproche du design N. Oudshoorn et al… https://t.co/k4fzpl3rOR
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 14 #socioNoel "Les conditions de formation et d’appropriation d’un club d’entreprise de PME en territoire rura… https://t.co/z8YIFP7jOn
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoel J12 (quel retard) « les livres que je voudrais lire » Un bouquin que je dois lire depuis longtemps, et q… https://t.co/lrzLuSjHfA
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoel J13 « les livres que je voudrais lire » il y a vraiment des travaux très intéressant qui sont produits e… https://t.co/gJO8yCDLV1
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoel J14 « les livres que je voudrais lire » la sociologie a l’avantage du temps long pour ses enquêtes. Ça d… https://t.co/bsMMNwu9RW
+
+---
+
+Azadeh (azadiyurt)
+> Avec un peu de retard..Un livre que j'ai bcp apprécié intitulé Fantômas sous les Tropiques et écrit pas Odile Goerg… https://t.co/Iv9gDyfsZJ
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> En ce 14e jour de #SocioNoël palestinien, et pour vous reposer des analyses développées, 6 pages de témoignage brut… https://t.co/a76EkqxvSx
+
+---
+
+MHH (MHoussayH)
+> #SocioNoel J15: pour finir la série enseigner/écrire, un podcast: @RIA_podcast 
+> 
+> https://t.co/2BqYUi3Ntr
+
+---
+
+MHH (MHoussayH)
+> @RIA_podcast Des entretiens, transcrits, des ressources, des suggestions pédagogiques. très varié, et là où j’ai dé… https://t.co/XmMFMpbjBf
+
+---
+
+vab (victor_ab)
+> Pour  le Jour 14 de #SocioNoël c'est une publication en espagnol. "Maurofobia/islamofobia y maurofilia/islamofilia… https://t.co/KhGk0isTDU
+
+---
+
+Lucie RigaRaï (LRigarai)
+> je suis lourdement tombée du bandwagon de #socioNoel mais je fais signe de loin avec cet excellent article du colle… https://t.co/CofoUJrBiY
+
+---
+
+Steve J (Steve_J_)
+> #SocioNoël #Day14 : Le rapport Hite sur la sexualité féminine dont je parle ici pour palier à une frustration d'ens… https://t.co/KEFkhdwgxO
+
+---
+
+Socio-reflexe (socio_reflexe)
+> #SocioNoel Hosseinabadi S., « Cinémas de Paris : des ‘hangars’ aux ‘complexes’ » (dans le n° 22 de la revue Théorèm… https://t.co/MiJjRjfwER
+
+---
+
+Maelyra (Maelyra_)
+> #SocioNoël #Jour14
+> 
+> "Invisible lives" de Viviane Namaste sur comment les personnes trans sont effacées, rendues inv… https://t.co/qibo670f1H
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 13 : ça me concerne directement vu que je souhaite travailler sur le vote, Olivier Christin et la V… https://t.co/8AOQ3lZ7Cu
+
+---
+
+Mathieu Rigouste (MathieuRigouste)
+> Pour qui s'interesse à Rénovation urbaine, neocolonialité, #Alger, 
+> #SocioNoel , enquête minutieuse de Rachid Sidi… https://t.co/rbHX6WU6Sl
+
+---
+
+Lady_Pora (Comtesse_Leia)
+> J'ai un peu perdu le fil de #SocioNoël mais du coup aujourd'hui ce sera : c'est fou ce qu'on peut apprendre avec le… https://t.co/wt0gKNdVHw
+
+---
+
+Revue Terrain (RevueTerrain)
+> Les Achuar-Jivaro, en Haute Amazonie, se transmettent des chants secrets au point de ne pouvoir être entendus par l… https://t.co/I9kd836GVM
+
+---
+
+Philippe Gargov (PhilippeGargov)
+> Gros clash de la sociologie dans le deuxième épisode de Dragon Zakura, pas très fairplay en cette période de… https://t.co/1UAPKOrsa3
+
+---
+
+Nicolas Nonyme (Fantaroux)
+> @balleverte Tu enlèves dans #SocioNoel et je suis ton homme.
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour11 Cycle 3 Politiques et des transformations organisationnelles. On démarre avec quelques rappels:… https://t.co/Idmxjh3zhE
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour12 On poursuit un peu d'histoire des politiques, mais au sujet des équipements sportifs dans quatre… https://t.co/uLpzXE4Dg6
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour13. Une thèse dont je vous ferai un CR dans les prochains mois: Kévin Olexa "Les unités territorial… https://t.co/r8JMhaPEUr
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour14. Carine Guerandel. Une nouvelle catégorie des politiques d’« intégration par le sport » : les «… https://t.co/RzWzmzD11N
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 14
+> 
+> Aujourd'hui je propose un article qui évoque l'adhésion syndicale de la CFDT
+
+---
+
+Les Éditions Arkhê (ArkheEditions)
+> Petite sélection de #Noël￼ (si vous êtes en panne d’inspiration) #histonoel #socionoel #livres https://t.co/AGsxTSLfpm 🎄🎄🎄
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #SocioNoel j14 : Kessous, Emmanuel. « L'amour en projet. Internet et les conventions de la rencontre amoureuse », R… https://t.co/DJyvoCdNBi
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #SocioNoel j13 l'oublié ! Du coup on va pas lire... on va sur youtube regarder la déclaration de panti noble sur l'… https://t.co/PPhwsXtXUB
+
+---
+
+ZaZ333 (Morifen333)
+> Anne Barrère : Au coeur des malaises enseignants #SocioNoel https://t.co/GjDcWKJLoI https://t.co/LIObRh76CF
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 14
+> 
+> Aujourd'hui je propose un article qui évoque l'adhésion syndicale de la CFDT  ! 
+> https://t.co/P5WpqzFO0D
+
+---
+
+Red Octopus 🌵 (spartakix)
+> @libidosciendi @edgarmorinparis #SocioNoël jour 12 (en retard) : Yasmine Siblot, Faire valoir ses droits au quotidi… https://t.co/KOh0Z4x9GO
+
+---
+
+Mehdi Arfaoui 🥑 (libidosciendi)
+> @spartakix @edgarmorinparis #SocioNoël 13 (toujours en retard) : "Le chercheur funambule. Quand une salariée se fai… https://t.co/hnxkDBqZIF
+
+---
+
+Gabriel Girard (GbrlGirard)
+> #SocioNoel, J14 | Le livre de Vinh-Kim Nguyen, publié en 2010 : The Republic of Therapy: Triage and Sovereignty in… https://t.co/YKE7krYTB3
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #SocioNoel j14, un numéro thématique de la revue Sociétés contemporaines, "Théories en milieu militant", dirigé par… https://t.co/DOa2PGkvDb
+
+---
+
+Romanin (Romanininin)
+> Olalala, à 10 minutes près je ratais #SocioNoel j14, je suis trop délétère ... Pour me rattraper, cette fois on par… https://t.co/9jSPTWLURi
+
+
+## 2017-12-15
+
+
+---
+
+SocioSauvage (sociosauvage)
+> #SocioNoël #Day15 La circulation transnationale du self-help féministe : acte 2 des luttes pour l’avortement libre… https://t.co/5VEtukBHfm
+
+---
+
+Emeline Brulé (e_mln_e)
+> @Moossye #socioNoel jour 15 : hier, la référence proposée discutait de comment les designers envisagent leurs futur… https://t.co/Vjxq6cDaHr
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J15 #SocioNoel John Friedmann « The World City
+> Hypothesis »(1986). Cinq ans avant Sassen et
+> dans une veine plus cri… https://t.co/Zf2VRiSPuc
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 15 #socioNoel "L'entreprise et ses actionnaires" de Pierre François, Claire Lemercier et Thomas Reverdy. Sur l… https://t.co/15LRewsUAr
+
+---
+
+EditionsLaDécouverte (Ed_LaDecouverte)
+> Un #VendrediLecture spécial #sociologie - avec des parutions de la rentrée de SHS 2017 📚 #SocioNoël https://t.co/E6yvyW84Oi
+
+---
+
+Socio-reflexe (socio_reflexe)
+> #socioNoel Claude Forest, « De la dépendance de la production cinématographique... française vis-à-vis du
+> financeme… https://t.co/7E8YJbOXqW
+
+---
+
+Virginie Blum (blum_virginie)
+> J15 de mon #socioNoël 2017 spécial BD : « Paroles d’honneur » de Leïla Slimani &amp; Laetitia Coryn ➡️… https://t.co/Yj1B0jg4mS
+
+---
+
+Revue Terrain (RevueTerrain)
+> Qu'est-ce qui fait le succès des films pornographiques hard core? Au-delà de  leurs dimensions morales ou symboliqu… https://t.co/9bIx3bSwQ5
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 15
+> 
+> Mon theme est "travail et syndicalisme"
+> J'ai beaucoup traité du travail séparément et vice-vers… https://t.co/qBUXourfAz
+
+---
+
+Kiyémis. (ThisisKiyemis)
+> #SocioNoel sur ce qui est sur ma liste de lecture actuelle, je triche un peu. Je suis en pleine découverte/recherch… https://t.co/Potn5ShAv2
+
+---
+
+Kiyémis. (ThisisKiyemis)
+> #SocioNoel 
+> "Nego-Feminism : Theorizing, Practicing, and Pruning. Africa 's Way" de Obioma Nnaemeka
+> https://t.co/qrEKwhYc1D
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 14. Un livre sur comment les physiocrates ont fait émerger une "science économique" https://t.co/fZ56OZ5lAl
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 15. Parce que l'histoire sociale des idées politiques c'est le future : https://t.co/o8NvDVSXWw
+
+---
+
+Morvan Lallouet (m_lallouet)
+> Ce qui me fait penser (#SocioNoel) que ce petit livre de Bourdieu est très très bien https://t.co/LduKiWIcJc
+
+---
+
+Romanin (Romanininin)
+> Pour #socioNoel j15,je vous propose un article sur le tournant biographique que constitue l'entrée en EHPAD pour le… https://t.co/SGQitp0pUm
+
+---
+
+ghislain t. (GhislainT_)
+> #SocioNoel #J13 "Le paganisme, donc, c'est d'abord tout le contraire du christianisme (...): 1 - Il n'est jamais du… https://t.co/XoV3FneEUj
+
+---
+
+Gabriel Girard (GbrlGirard)
+> #SocioNoel J15 | Le livre de Bruno Proth, Lieux de drague, scènes et coulisses d'une sexualité masculine, aux Éditi… https://t.co/ekQTns9PmY
+
+---
+
+ghislain t. (GhislainT_)
+> #SocioNoel #HistoNoel #J14 "Le génocide au village. Le massacre des Tutsi au #Rwanda" de Hélène Dumas. 10 années d'… https://t.co/w3LxPelJ74
+
+---
+
+ghislain t. (GhislainT_)
+> #SocioNoel #HistoNoel #J15 "Au cœur de l’ethnie. #Ethnies, tribalisme et État en #Afrique", étrangement absent de m… https://t.co/z0ZZ8rMKJR
+
+---
+
+ZaZ333 (Morifen333)
+> Sortie récente : L'Année sociologique - 2017/2 - "Le social avant la sociologie" #SocioNoel https://t.co/mujpE7yQcb
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> J'ai pas fait mon #SocioNoël palestinien aujourd'hui mea culpa mea maxima culpa.
+> Le voilà. Un très beau travail com… https://t.co/SFCTdmCDqn
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 14/25 Amiante : un scandale improbable. Sociologie d'un problème public, d'Emmanuel Henry… https://t.co/O2qxWHES6E
+
+
+## 2017-12-16
+
+
+---
+
+Emeline Brulé (e_mln_e)
+> #SocioNoel Jour 16 : Enabling Justice: Spatializing Disability In the Built Environment https://t.co/53gjQDzRWT
+
+---
+
+Romanin (Romanininin)
+> #socioNoel j16 : je vais finir le cycle "résider en EHPAD / être dépendant" (j'invente, y a pas de cycle) avec un a… https://t.co/mdx1keL1jI
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J16 #SocioNoel Paul Knox et Peter Taylor (dir.) « World Cities
+> in a World System ». Ce livre
+> désormais ancien mais… https://t.co/EodmmhbgEi
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #socioNoel j15, "Sens commun : histoire d'une idée politique", de Sophia Rosenfeld, une histoire des circulations t… https://t.co/rsB6LpuFyv
+
+---
+
+Revue Terrain (RevueTerrain)
+> Comment  représenter la puanteur d'un saint? Des paléochrétiens à David Bowie, en passant  par Le Caravage et Scors… https://t.co/tNJpsuyIXs
+
+---
+
+drama gouine (thistlezzz)
+> Comme tous les ans depuis que ça existe, les cadeaux en dessous du sapin sont sponsorisés par #socioNoel et j'espèr… https://t.co/KwqSIUppa9
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #socioNoel j16, un ouvrage collectif de sociologie des idées, dirigé par Charles Camic, Neil Gross et Michèle Lamon… https://t.co/5mOj37rDvI
+
+---
+
+Virginie Blum (blum_virginie)
+> J16 de mon #socioNoël 2017 spécial BD : « L’essai » de Nicolas Debon sur l’histoire vraie d’1 communauté anarchiste… https://t.co/SeXa662RVA
+
+---
+
+SocioSauvage (sociosauvage)
+> #SocioNoël #Day16 Bernard Lahire - "Esprit sociologique, esprit critique"
+> https://t.co/xZwQrpjzmq
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 16 #socioNoel "En quête d'indépendance, enquête d'appartenances " de Françoise de Barros et Claire Zalc. Socio… https://t.co/E5QSjATr8J
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 16
+> 
+> Un classique pour comprendre les mutations du travail à partir d'une enquete ethnographique  ! https://t.co/GU640kuzO6
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 16 et toujours spécial science politique. Parce qu'il faut revoir l'étude du fait colonial, Romain… https://t.co/mMgkmreoR4
+
+---
+
+Red Octopus 🌵 (spartakix)
+> @libidosciendi Jour 14 de #SocioNoël : Sarah Abdelnour, Les nouveaux prolétaires https://t.co/7NehYS2bwi
+
+---
+
+Mehdi Arfaoui 🥑 (libidosciendi)
+> @spartakix #SocioNoël Jour 15 (encore et toujours en retard)
+> 
+> Le merveilleux "cinéma-vérité" de Pasolini avec son E… https://t.co/FKcn73vzY1
+
+
+## 2017-12-17
+
+
+---
+
+Gabriel Girard (GbrlGirard)
+> Jour 16 #SocioNoel | Le livre de Janine Pierret, Vivre avec le VIH. Enquête de longue durée auprès de personnes inf… https://t.co/ntGX957b3O
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J17 #SocioNoel Hank Savitch &amp; Paul Kantor "Cities in the International Market Place". Dans la même veine d’économie… https://t.co/RmR2ahxpjO
+
+---
+
+Revue Terrain (RevueTerrain)
+> La  transmission serait-elle au fond l'objet central de l'anthropologie?  David Berliner examine cet "impensé" des… https://t.co/GfAwfmfFM9
+
+---
+
+Lady_Pora (Comtesse_Leia)
+> Pour #SocioNoel aujourd'hui (puisque visiblement ça peut être utile) : pourquoi la biologie n'explique pas pourquoi… https://t.co/pGguCPVVyP
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoel J15 « les livres que je voudrais lire » encore une lecture inévitable pour moi, mais à laquelle je n’ai… https://t.co/vDBJYFJd0a
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoel J16 « les livres que je voudrais lire » moi je vois « trajectoires » j’ai envie de lire je suis comme ça https://t.co/avkJc9ZpZm
+
+---
+
+Red Octopus 🌵 (spartakix)
+> @libidosciendi Jour 16 de #SocioNoël : l'article de Gwénaëlle Mainsant dans Genèses 'Comment la « Mondaine » constr… https://t.co/Sr39EepMzF
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoel J17 « les livres que je voudrais lire » On devrait tous lire plus souvent de la sociologie de l’enseigne… https://t.co/DbcHq3JsYp
+
+---
+
+SocioSauvage (sociosauvage)
+> #SocioNoël #Day17 Les « martyrs » jihadistes veulent-ils forcément mourir ? - Amélie Blom
+> https://t.co/rjWFdU5zw1
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 17
+> 
+> Quand on voit une opposition entre la culture de la CGT et celle de la mondialisation d'une ent… https://t.co/fKSQ2zka41
+
+---
+
+Gabriel Girard (GbrlGirard)
+> #SocioNoel J17 | Le livre de François Delor, Séropositifs. Trajectoires identitaires et rencontres du risque, publi… https://t.co/enJGMtgVmr
