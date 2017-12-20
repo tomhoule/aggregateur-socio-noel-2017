@@ -3322,3 +3322,612 @@ Armand au chocolat (Mr_Jarad)
 
 Gabriel Girard (GbrlGirard)
 > #SocioNoel J17 | Le livre de François Delor, Séropositifs. Trajectoires identitaires et rencontres du risque, publi… https://t.co/enJGMtgVmr
+
+---
+
+MHH (MHoussayH)
+> #SocioNoel je-remonte-sur-le-wagon
+> Série 2 vrac de mes lectures récentes, micro série option justice spatiale.
+
+---
+
+MHH (MHoussayH)
+> #SocioNoel J16 : Gervais-Lambony, Justice spatiale et Afrique du Sud 
+> paywall, dites moi si vous voulez)
+> 
+> https://t.co/j5asHxuyJA
+
+---
+
+MHH (MHoussayH)
+> #SocioNoel J17 : E. Cahu, sur l’(in)justice spatiale de l’institution judiciaire française
+> 
+> (paywall ms demandez)
+> https://t.co/j5asHxuyJA
+
+---
+
+MHH (MHoussayH)
+> #SocioNoel J18 : Olivier Milhaud, “Séparer et Punir. Une Géographie des prisons françaises.” https://t.co/JTbhA9RTli
+
+---
+
+Jérôme Lamy (JeromeLamy79)
+> Des #SocioNoel qui sont aussi des #HistoNoel #Défi Et on commence avec Panofsky et son "Architecture et pensée scol… https://t.co/jYYaFwKT1F
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> Deux jours d'affilée que j'oubliais mon #SocioNoël palestinien. My bad. Donc voici celui du J16. https://t.co/lShSz9XBd3
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> Pour le J17 du #SocioNoël palestinien, pour ne pas rester que et uniquement dans les films du dimanche, un roman. https://t.co/ctWQeAM3Lf
+
+---
+
+Steve J (Steve_J_)
+> #SocioNoel #Day15 : Notamment pour son chapitre sur l'observation statistique de la sexualité. https://t.co/5t7BzjAHlq
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 17 #socioNoel Les courtiers du capitalisme de Sylvain Laurens. Une enquête sur le lobbying à la commission eur… https://t.co/EYAB5BfJqV
+
+---
+
+ZaZ333 (Morifen333)
+> Fabien Truong, Loyautés radicales. L’islam et les « mauvais garçons » de la nation https://t.co/psQX7zxRIk… https://t.co/SizBuE91WR
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 15/25 Stigmate. Les usages sociaux des handicaps, d’Erving Goffman https://t.co/qMiyWs9CKR qui s’ouvre s… https://t.co/1PyJllOHp2
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 17 : comprendre l'orientation politique française d'aujourd'hui passe forcément par ce petit bouquin https://t.co/uaZnfJ1zSg
+
+---
+
+Steve J (Steve_J_)
+> #SocioNoel #Day16 #RelireLahire : https://t.co/vjO14bSg1O
+> "La non thèse de sociologie d'Élizabeth Teissier" par Ber… https://t.co/W464heHVOO
+
+---
+
+Tanguy VDA (Tanguy2605)
+> Ouh lalala gros laisser aller sur  #SocioNoel pour moi... je me rattrape tout de suite
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #SocioNoel j15 : mon livre de poche... je l'emporte partout, tout le temps. Sébastien Chauvin, Arnaud Lerch, Sociol… https://t.co/jU1c2I3UkX
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #SocioNoel j 16 : Réseaux, volume 7, n°38, 1989. Messageries notamment parce qu'il y a un article de Josiane Jouet,… https://t.co/PvdVIRU6lV
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #SocioNoel j17 : Antonio Casilli, Les liaisons numériques. Vers une nouvelle sociabilité ?, Seuil, coll. « La coule… https://t.co/bzTmRWJKkR
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 16/25 Naissance de la clinique, de Michel Foucault https://t.co/Jf9R2gJvv2 propose une archéologie du re… https://t.co/RQTmtQ6D6x
+
+---
+
+Steve J (Steve_J_)
+> #SocioNoel #Day17 : https://t.co/uVBXQuzBOR
+> &lt;&lt;Sondages d'intention de vote : l'estimation des "marges d'erreur"&gt;&gt;
+> I… https://t.co/39xl5XoFFo
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 17/25 Anthropologie économique, de Pierre Bourdieu https://t.co/8CXaJip5We pour sa discussion des approc… https://t.co/tE9pogGaNY
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #SocioNoel j17, un article programmatique de Frédérique Matonti, "Plaidoyer pour une histoire sociale des idées pol… https://t.co/SfDoiIhsBW
+
+---
+
+Mehdi Arfaoui 🥑 (libidosciendi)
+> @spartakix 📚🎄
+> 
+> #SocioNoël Jour 17 - Alfred Schütz, L'étranger. Un essai de psychologie sociale. 
+> 
+> 👌🏽 https://t.co/NYwY50NCUl
+
+
+## 2017-12-18
+
+
+---
+
+Lady_Pora (Comtesse_Leia)
+> Pour #SocioNoël aujourd'hui : le sex-ratio à la naissance n'est pas une constante biologique https://t.co/SoHML9CZ5T
+
+---
+
+PatateHunter (PatateHunter)
+> Eh bah putain ! #SocioNoël c'est vraiment le meilleur moment de l'année ! https://t.co/zQUnNqmUIf
+
+---
+
+SocioSauvage (sociosauvage)
+> #SocioNoël #Day18 « C’est comme si on avait de la colère pour elles » - Auréline Cardoso
+> https://t.co/IxSKTRTRiy
+
+---
+
+Emeline Brulé (e_mln_e)
+> @anne_rev #SocioNoel jour 18 : A Critical Lens on Dementia and Design in HCI, par Amanda Lazar et al.… https://t.co/HVnzPwoNJM
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J18 #SocioNoel Christian Lefèvre &amp; Ernesto D'Albergo "Why Cities Are Looking Abroad and How They Go about It" (2007… https://t.co/2lyQEBwBGN
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 18 #SocioNoel "Socialisation au rôle patronal et mobilisation collective du groupe des chefs d'entreprise" de… https://t.co/SQYDM4pNiU
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> J18 du #SocioNoël palestinien, abordons sur cette dernière semaine quelques questions très contemporaines. https://t.co/hRH3lYIpsC
+
+---
+
+vab (victor_ab)
+> Je dois rattraper les Jours 15, 16 et 17 de #SocioNoel ... 
+> Pour le faire, je poste les derniers numeros de la revu… https://t.co/vhdQuRc2Qo
+
+---
+
+vab (victor_ab)
+> Pour le J15 #SocioNoel c'est le numero 2 du 2014: 
+> https://t.co/uaUiZB2Jvg
+
+---
+
+vab (victor_ab)
+> Pour le J16 #SocioNoel c'est le numero 1 de 2015: 
+>   https://t.co/aBKPWvK57U
+
+---
+
+vab (victor_ab)
+> Pour le J17 #SocioNoel c'est le numero paru en 2016: 
+> https://t.co/0wkVYejcJp
+
+---
+
+vab (victor_ab)
+> Et pour le J18 #SocioNoel c'est le numero publié en 2017, qui n'est pas encore en acces libre: 
+> https://t.co/h1KQIpWCqN
+
+---
+
+Romanin (Romanininin)
+> Pour #SocioNoel j18, je vous propose, je pense, un incontournable sur la dépendance. Au delà du tour d'horizon des… https://t.co/Hf5MV8iLxc
+
+---
+
+Socio-reflexe (socio_reflexe)
+> #SocioNoel Bourgatte M., « Le cinéma Utopia à Avignon entre 1976 et 1994. Trois formes de discours au service de la… https://t.co/kZVdrTrI4v
+
+---
+
+Revue Terrain (RevueTerrain)
+> Les historiens ont fait de la mémoire un objet de l'histoire. Tzvetan Todorov réhabilite ici la mémoire comme mode… https://t.co/oywSRyvfaf
+
+---
+
+Red Octopus 🌵 (spartakix)
+> Un livre qui aurait sa place dans le #SocioNoël de @Mr_Jarad https://t.co/wgCXvTE83I
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 18
+> 
+> Aujourd'hui je propose un ouvrage critiqué qui voyait un déclin de la CGT à cause de sa bureauc… https://t.co/SExsccbsmx
+
+---
+
+Virginie Blum (blum_virginie)
+> J17 et J18 de mon #SocioNoel 2017 spécial BD : « Turbulences », 1enquête d’Anne Lambert &amp; « Rural. Chronique d’une… https://t.co/9XQvD8dv4q
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 18 et toujours en science politique. Parce que la bureaucratie c'est pas qu'une histoire d'occident… https://t.co/jPWYVYusZs
+
+---
+
+Steve J (Steve_J_)
+> #SocioNoel #Day18 : https://t.co/5EdSito72Z
+> "Fun in a Different Way”: Rhythms of Engagement and Non-Immersive Play… https://t.co/033gCqsBUs
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #socioNoel j18, "Gens de métier et révolution", du sociologue et historien William Sewell, un livre brillant qui mo… https://t.co/5pySbeNL80
+
+---
+
+Johan Klarenson (Johan_Klarenson)
+> @Atdoulaye_Boure @ElBielsalif @RougeCPP @Ruben_Twins @ben_bunel @Yxllzz @nak14111 @kyukushinkay @MellyandSmile Bye… https://t.co/BbyKtPCr8g
+
+---
+
+Gabriel Girard (GbrlGirard)
+> #SocioNoel J18 | Le livre d'Estelle Carde (@UMontreal) intitulé Discriminations et accès aux soins en Guyane frança… https://t.co/PkvzLxgjeq
+
+
+## 2017-12-19
+
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 19 #socioNoel "Territoires et activité économiques" de Pierre-Paul Zalio. A partir de biographies et de récits… https://t.co/QYCdaz0bTE
+
+---
+
+SocioSauvage (sociosauvage)
+> #SocioNoël #Day19 Genre et sexualité dans le rapport pédagogique : ethnographie d’un lycée « de banlieue » - Zoé Ro… https://t.co/KKyNKonBec
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J19 #SocioNoel Erik Swyngedouw « Neither Global nor Local: Glocalization and
+> the Politics of Scale » (1997)
+> La « gl… https://t.co/FV0XqI0PbN
+
+---
+
+Jérôme Lamy (JeromeLamy79)
+> Suite des #SocioNoel qui sont aussi des #HistoNoel, aujourd'hui l'étonnant (et passionnant) livre de M. Halbwachs,… https://t.co/NDjg9jN2at
+
+---
+
+Revue Terrain (RevueTerrain)
+> "La musique est-elle bonne pour la santé?" Un article de Victor A. Stoichita en introduction au dernier numéro de T… https://t.co/R5f32PqxEQ
+
+---
+
+Socio-reflexe (socio_reflexe)
+> #SocioNoel Laurent Creton, « Le devenir des salles d’art et d’essai : éléments d’économie politique », in Laurent C… https://t.co/EJx4ISl7uX
+
+---
+
+Alexis (LeContratSocial)
+> Bien en retard, je me lance dans le #socioNoel mais spécial laïcité, religions toussa toussa : Normes religieuses e… https://t.co/lsgMirRVEw
+
+---
+
+Alexis (LeContratSocial)
+> Traduction très récente de la Politique du voile de Joan W. Scott où comment créer le problème du voile en France,… https://t.co/waqTyw2p8H
+
+---
+
+Alexis (LeContratSocial)
+> Le classique mais ô combien nécessaire "les 7 laïcités françaises" de Jean Bauberot 
+> Simple, basique  #SocioNoel https://t.co/lloNM0aFhA
+
+---
+
+Alexis (LeContratSocial)
+> Dans le même sillage, Les religions sont elles réactionnaires? de @slavignotte et l'article de Romain Mathieu, "La… https://t.co/bk7oAkM3VP
+
+---
+
+Alexis (LeContratSocial)
+> Olivier Roy "la laïcité face à l'islam "sur la déconstruction de l'Islam et de son rapport avec le principe de laïc… https://t.co/H2OFncuTOU
+
+---
+
+Alexis (LeContratSocial)
+> Parce que la laïcité est avant tout un principe juridique, LA base de la socio du droit, le classique "sociologie d… https://t.co/sCABqxtCCJ
+
+---
+
+vab (victor_ab)
+> Jour 19 de #SocioNoël
+> Je pose ce numéro spécial de la revue "Sociologie" consacré à la sociologie de l'islamophobie… https://t.co/r5g2mKPUTe
+
+---
+
+Alexis (LeContratSocial)
+> Sur la fabrication de la loi et une formidable étude du Conseil d'État, régulateur de la laïcité en France : La fab… https://t.co/M1rKnMyxl1
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> Info pour la suite : toutes les références à venir de mon #SocioNoël palestinien seront accrochées à ce message car… https://t.co/aEAFdqsQm8
+
+---
+
+Claire Cosquer (s_kozhker)
+> Je suis super en retard sur #SocioNoël, la faute à un voyage transatlantique. Aujourd'hui ça va être l'indigestion de rattrapage.
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoel J18 « les livres que j’aimerais lire » il y a trajectoires dans le titre mais pas que. https://t.co/rtF5pDdrMt
+
+---
+
+Claire Cosquer (s_kozhker)
+> Pour le #SocioNoël Jour 14, le Race, ethnicity, and sexuality de Joane Nagel, publié en 2003. https://t.co/yJKSFK8xnV
+
+---
+
+Claire Cosquer (s_kozhker)
+> #SocioNoël Jour 15 : un retour à une étude sur la blanchité dans la migration avec Leonard, Pauline. 2010. « Organi… https://t.co/H7UZdASsCx
+
+---
+
+Claire Cosquer (s_kozhker)
+> #SocioNoël Jour 16 : dans la continuité directe, Leonard, Pauline. 2008. « Migrating identities: gender, whiteness… https://t.co/VRUQJFLlHw
+
+---
+
+Claire Cosquer (s_kozhker)
+> #SocioNoël Jour 17 : la question de la compatibilité d'un concept "étasunien" (inexact) est souvent posée: Garner,… https://t.co/u8WdcDj0LN
+
+---
+
+Claire Cosquer (s_kozhker)
+> #SocioNoël Jour 18 : j'en avais déjà parlé ici, l'ouvrage collectif coordonné par Sylvie Laurent et Thierry Leclère… https://t.co/j9ityM8mjD
+
+---
+
+Anais Leleux (AnaisLeleux)
+> Avec du Baubérot et du Orelsan dans le texte, un très bon #SocioNoel spécial laïcité https://t.co/Qos6L5kr79
+
+---
+
+Claire Cosquer (s_kozhker)
+> #SocioNoël Jour 19 : pas directement sur la blanchité ni sur les rapports sociaux de race, mais une lecture qui a é… https://t.co/K6mner7l7m
+
+---
+
+Alexis (LeContratSocial)
+> @AnaisLeleux Ouep mais je pense pas qu'on puisse le penser comme #socioNoel :-) (sur ce sujet, lire la politique du… https://t.co/9vQWtBHqdE
+
+---
+
+NetWeight (netweight_)
+> The latest The Gaming Daily! https://t.co/G6cAyzYSWy #nintendowii #socionoel
+
+---
+
+MHH (MHoussayH)
+> #socionoel Un peu de vrac, sur des lectures marquantes de cette année
+
+---
+
+MHH (MHoussayH)
+> #SocioNoel J19 : Pascale Nédélec, Las Vegas dans l’ombre des casinos
+> Citadinité, urbanité dans un objet urbain limi… https://t.co/1v509FIjkh
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 18/25 Les sourds existent-ils ? de Bernard Mottez https://t.co/QBDq0AhsKt un ensemble de textes réunis p… https://t.co/BB0a9WBNLn
+
+---
+
+Denis Colombi (Uneheuredepeine)
+> #SocioNoël J19 « les livres que je voudrais lire » dans la situation actuelle, lire de la socio des migrations devi… https://t.co/XDKqhIpqC8
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 19 spécial science politique. Parce que c'est toujours bien de lire des critiques sur les domaines… https://t.co/DyH2lUMQYI
+
+---
+
+Alexandre Moatti (A_Moatti)
+> Loulou le boxeur : contribution iconographique du métro parisien  à la sociologie des sciences de B. Latour… https://t.co/xJH4NaJxmY
+
+---
+
+NetWeight (netweight_)
+> The latest The Gaming Daily! https://t.co/G6cAyzYSWy #socionoel
+
+---
+
+Marie LeClainchePiel (leclainchepiel)
+> #SocioNoël 19/25 Violences conjugales. Du combat féministe à la cause publique, Pauline Delage… https://t.co/8uoWqVFBXZ
+
+---
+
+Steve J (Steve_J_)
+> #SocioNoel #Day19 : J'ai encore envie de vous parler de jeu de rôle, #JdR, et je vais du coup citer un chapitre de… https://t.co/suiyfTcxqA
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> J19 du #SocioNoël palestinien, dans cette dernière semaine sur les questions contemporaines, le livre de Diana Alla… https://t.co/ipQaLq5dzV
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #socioNoel : J18 -Hors liste- Laurence Le Douarin, Vincent Caradec, "les grands parents, leurs petits-enfants et le… https://t.co/B1UB5jDja6
+
+---
+
+Armand au chocolat (Mr_Jarad)
+> #SocioNoel Jour 19
+> 
+> Aujourd'hui je propose une passionante discussion entre Florence Weber et Michel Pialoux entre… https://t.co/hIGbbEAmQz
+
+---
+
+Tanguy VDA (Tanguy2605)
+> #socioNoel : J19 (faire simple : un lien) pour consulter les écrits de Léobon, Velter, Frigault, et al. un simple l… https://t.co/zqOwvvYffw
+
+---
+
+Samuel Hayat (SamuelHayat)
+> #SocioNoel j19, la trilogie d'histoire conceptuelle du politique de Pierre Rosanvallon, une histoire des idées cert… https://t.co/IRrRa9SYmf
+
+---
+
+[Tom IV] (Feltonmormon)
+> @_Anaximandre J'ai bien compris, je voulais ta lumière sur ce point. Comme j'aimerais ta lumière sur ta liste… https://t.co/JRV8ej6CzV
+
+---
+
+Romanin (Romanininin)
+> Bon, pour #socioNoel j19, je vous propose qu'on s'intéresse à un petit bouquin dans la continuité du précédent. C'e… https://t.co/mQPRPtxHDx
+
+---
+
+Emeline Brulé (e_mln_e)
+> #Socionoel jour 19 (ou le jour après le dernier jour que j'avais planifié) : Le projet  @SensoryObjects, qui s'inté… https://t.co/gSnjJo5ccC
+
+
+## 2017-12-20
+
+
+---
+
+Gabriel Girard (GbrlGirard)
+> Jour19 #SocioNoel | Le livre de Nicolas Dodier, Leçons politiques de l'épidémie de sida, publié aux Éditions EHESS… https://t.co/EklLbXbTZJ
+
+---
+
+SocioSauvage (sociosauvage)
+> #SocioNoël #Day20 Filles + Sciences = Une équation insoluble ?
+> Marianne Blanchard, Sophie Orange et Arnaud Pierrel
+> https://t.co/2VSADSTeCU
+
+---
+
+Jérôme Lamy (JeromeLamy79)
+> Suite des #SocioNoel qui sont aussi des #HistoNoel #Croisonsles Aujourd'hui, Paul Veyne, Le Pain et le Cirque, sous… https://t.co/bDuG58hFF9
+
+---
+
+Nicolas Maisetti (nmaisetti)
+> J20 #SocioNoel Simon Curtis « Cities and Global Governance  » (2016).  Pas de côté heureux par rapport à la géograp… https://t.co/IiG2ROM5k9
+
+---
+
+Arnaud Saint-Martin (ArSaintMartin)
+> S'il n'est qu'un livre #SocioNoël à lire (ou à re-[-re]lire) pour la recherche, c'est bien celui-ci : Andrew Abbott… https://t.co/auHarIFBYL
+
+---
+
+MHH (MHoussayH)
+> #SocioNoel J20 : Camille Lefebvre, Frontières de sable, frontières de papier : Histoire de territoires et de fronti… https://t.co/fp0jhtLbBf
+
+---
+
+vab (victor_ab)
+> Pour le Jour 20 de #SocioNoël c'est un rapport d'Amnesty Internationale publié en 2012: 
+> "Choix et prejugé. La disc… https://t.co/ZhXJSmd4MP
+
+---
+
+Revue Terrain (RevueTerrain)
+> "La première chose à admettre lorsque l'on veut comprendre les  apparitions de la Sainte Vierge, c'est la présence… https://t.co/r9pFndoQ1s
+
+---
+
+Sophie Louey (sophielouey)
+> Jour 20 #socioNoel "Le syndicalisme patronal comme syndicalisme de services" par Baptiste Giraud et Aisling Healy  https://t.co/DzWPOvCkkJ
+
+---
+
+Pandov Strochnis ) (tcatf_)
+> Plus que quatre jours avant la nuit de Noël. En ce 20e jour du #SocioNoël palestinien, "From Refugees to Minority",… https://t.co/0Q0eXyj8Tm
+
+---
+
+Andrea Naranjo GdeR (AndreaNaranjoLe)
+> @tcatf_ et deux classiques ! #EdwardSaid The Politics of Dispossession. The Struggle for Palestinian Self-Determina… https://t.co/zYYEW1X1KH
+
+---
+
+Socio-reflexe (socio_reflexe)
+> #SocioNoel Aurélie Pinto, « L’exploitation d’un label de qualité dans une industrie culturelle. Le marché de la dif… https://t.co/QynNBXrr9M
+
+---
+
+Georges Bib (GabrielGazeau)
+> J7 - Salomé et les hommes en noir
+> Un petit aparté #socioNoel mais j'ai trop de retard sur le calendrier pour m'en p… https://t.co/VfzGDqQmaa
+
+---
+
+Joévin (_Anaximandre)
+> #SocioNoel jour 20 en science politique. Beaucoup le connaissent, peu l'ont lu, alors lisez le. Ça en dit plus que… https://t.co/lVGDWJGkNU
+
+---
+
+Steve J (Steve_J_)
+> #SocioNoel #day20 : 
+> https://t.co/xLGMnBTGQf
+> "La date de naissance influence-t-elle les trajectoires scolaires et p… https://t.co/udPvgIw8zw
+
+---
+
+Steve J (Steve_J_)
+> @Comtesse_Leia Cela pourrait faire un Socio Noël sympa :
+> #SocioNoel #Jour20 : Cette légende urbaine qui me fut raco… https://t.co/J7Hzr9yVsB
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour15 Marina Honta, Samuel Julhe "Les professions du secteur public saisies par la privatisation. Le c… https://t.co/yg482rwpzs
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour16 Cycle 4. Emploi et travail sportif. Marc Falcoz." Emplois sportifs, emplois pérennes, emplois pr… https://t.co/lQQ1HoKfpY
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour17 Dossier de la revue STAPS "Sport et travail" avec notamment des articles sur les recrutements da… https://t.co/tczquxkYx9
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour18. En fait c'est carrément dans le thème. un article sur le métier de professeur d'EPS. https://t.co/1i057d2Hpd
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour19 Un article de Claire Perrin dans la revue Santé Publique (2016) sur la "Construction du territoi… https://t.co/oMUVeUye71
+
+---
+
+Flavien Bouttet (balleverte)
+> #SocioNoel #Jour20 Cycle 5. Un sport plus inclusif ? On démarre avec un article de C. Mennesson sur la difficulté d… https://t.co/ADiOqiEtEd
+
+---
+
+Virginie Blum (blum_virginie)
+> J19 et J20 de mon #socioNoel spécial BD: "Je suis TOP! Liberté Egalité Parité" de @BlandineMetayer &amp; "Les nouvelles… https://t.co/U6gy5TdNcj
+
+---
+
+Emeline Brulé (e_mln_e)
+> #Socionoel jour 20 : Would You Be Mine: Appropriating Minecraft as an Assistive Technology for Youth with Autism, d… https://t.co/X1uy5ybYGc
