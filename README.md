@@ -1,6 +1,6 @@
-# Aggrégateur #SocioNoel
+# Agrégateur #SocioNoel
 
-Petit script pour aggréger les tweets avec le hashtag #SocioNoel pour décembre 2017.
+Petit script pour agréger les tweets avec le hashtag #SocioNoel pour décembre 2017.
 
 
 ## Utilisation
